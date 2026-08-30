@@ -10,4 +10,3 @@ title = "САН — Сообщество Агентов Недвижимости
   [markup.goldmark]
     [markup.goldmark.renderer]
       unsafe = true
-relativeURLs = true
