@@ -1,0 +1,13 @@
+baseURL = "https://blago-nko.github.io/web-can/"
+languageCode = "ru-ru"
+title = "САН — Сообщество Агентов Недвижимости"
+
+[params]
+  description = "Платформа для агентов недвижимости. Скоро запуск!"
+  author = "НП «Общественное благополучие Воронежа»"
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
+relativeURLs = true
