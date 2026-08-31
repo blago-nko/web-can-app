@@ -4,6 +4,7 @@ description: "| | | --- | | [САН - сообщество агентов нед
 aliases:
   - "/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html"
 url: "/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti/"
+date: 2025-04-01T00:00:00Z
 ---
 
 |  |
@@ -23,7 +24,7 @@ url: "/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agento
 
 И конечно важно соблюдать [Кодекс профессиональной этики участников САН](https://can.blagorussia.ru/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html), иначе агент может быть исключён из проекта «САН».
 
-Загрузка&#8230;
+Загрузка…
 
 Поделиться
 

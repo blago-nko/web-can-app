@@ -4,6 +4,7 @@ description: "Проект [САН (Сообщество Агентов Недв
 aliases:
   - "/2026/07/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat.html"
 url: "/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat/"
+date: 2026-07-01T00:00:00Z
 ---
 
 Проект [САН (Сообщество Агентов Недвижимости)](https://can.blagorussia.ru/) превращается из обычного сайта в **профессиональную среду**, где всё устроено для удобства и защиты интересов агента. Платформа переходит на международные стандарты работы Мультилистинговой системы (MLS), но делает это просто и понятно для каждого участника.

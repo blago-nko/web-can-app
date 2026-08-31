@@ -4,6 +4,7 @@ description: "| | | --- | | [Кодекс профессиональной эт�
 aliases:
   - "/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti/"
+date: 2025-08-01T00:00:00Z
 ---
 
 |  |

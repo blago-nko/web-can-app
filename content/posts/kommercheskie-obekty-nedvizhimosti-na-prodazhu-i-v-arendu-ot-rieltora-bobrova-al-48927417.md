@@ -4,6 +4,7 @@ description: "На этой странице предлагаются к аре�
 aliases:
   - "/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html"
 url: "/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha/"
+date: 2025-10-01T00:00:00Z
 ---
 
 На этой странице предлагаются к аренде и продаже коммерческие объекты от агента по недвижимости [Боброва Александра Валентиновича](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).

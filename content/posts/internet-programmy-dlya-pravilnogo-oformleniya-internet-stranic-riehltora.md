@@ -4,6 +4,7 @@ description: "| | | --- | | [Интернет программы для прав
 aliases:
   - "/2025/05/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora.html"
 url: "/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora/"
+date: 2025-05-01T00:00:00Z
 ---
 
 |  |

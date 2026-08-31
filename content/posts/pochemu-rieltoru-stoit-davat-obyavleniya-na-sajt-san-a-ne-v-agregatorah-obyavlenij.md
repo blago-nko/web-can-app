@@ -4,6 +4,7 @@ description: "| | | --- | | [Почему риелтору стоит дават
 aliases:
   - "/2025/09/pochemu-rieltoru-stoit-davat-obyavleniya-na-sajt-san-a-ne-v-agregatorah-obyavlenij.html"
 url: "/pochemu-rieltoru-stoit-davat-obyavleniya-na-sajt-san-a-ne-v-agregatorah-obyavlenij/"
+date: 2025-09-01T00:00:00Z
 ---
 
 |  |

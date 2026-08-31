@@ -4,6 +4,7 @@ description: "| | | --- | | [Правила качественного офор�
 aliases:
   - "/2025/05/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san.html"
 url: "/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san/"
+date: 2025-05-01T00:00:00Z
 ---
 
 |  |

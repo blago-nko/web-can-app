@@ -1,9 +1,10 @@
 ---
-title: "Бобров Александр Валентинович &#8212; Администратор САН"
+title: "Бобров Александр Валентинович — Администратор САН"
 description: "| | | --- | | [Бобров Александр Валентинович - администратор проекта САН](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgK6s8f5mh2yA8xPzjpprhTjR2tG"
 aliases:
   - "/2026/07/founder.html"
 url: "/founder/"
+date: 2026-07-01T00:00:00Z
 ---
 
 |  |

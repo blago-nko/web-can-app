@@ -4,6 +4,7 @@ description: "| | | --- | | [Почему на сайте САН все объя
 aliases:
   - "/2025/08/pochemu-na-sajte-san-vse-obyavleniya-besplatnye.html"
 url: "/pochemu-na-sajte-san-vse-obyavleniya-besplatnye/"
+date: 2025-08-01T00:00:00Z
 ---
 
 |  |

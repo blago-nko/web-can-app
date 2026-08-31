@@ -4,6 +4,7 @@ description: "| | | --- | | [О проекте](https://blogger.googleuserconten
 aliases:
   - "/2025/04/o-proekte-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/o-proekte-san-soobshchestvo-agentov-nedvizhimosti/"
+date: 2025-04-01T00:00:00Z
 ---
 
 |  |
