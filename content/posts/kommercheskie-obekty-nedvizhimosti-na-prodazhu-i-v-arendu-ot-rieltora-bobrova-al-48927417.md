@@ -638,3 +638,5 @@ date: 2025-10-01T00:00:00Z
 *** - после заключения агентского договора.
 
 Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
+
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/w400-h229-rw/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
