@@ -5,16 +5,24 @@ aliases:
 url: "/kontakty-san-soobshchestvo-agentov-nedvizhimosti/"
 date: 2025-05-01T00:00:00Z
 ---
+
 |  |
 | --- |
 | ![Контакты САН - сообщество агентов недвижимости](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiK6zns5adlSSIskekP3L17KgLTWjWY__dvzfqvX_UgK5hHdvmX_QT0DSdK07-JDJU95GzSJT8-udpCjctX8MeCovV4yb1aWVEmwUZSVb0zBbXLkUnlrK_Ig3IE9b7_bf0yx7OxnujpR-VJhSw4VbulkuxCeY25KPrCRLrWVaaYc2h6vPej4PbKzkSrgKU/s1344/258b30c0355b11f0b2a28a1f92f7a718_1.jpeg) |
 | Контакты САН - сообщество агентов недвижимости |
+
 #### Добро пожаловать на страницу контактов САН - сообщество агентов недвижимости!
+
 Здесь Вы найдёте всю необходимую информацию, чтобы связаться с нами и узнать больше о нашей деятельности.
+
 Мы рады ответить на все Ваши вопросы и готовы сотрудничать с новыми участниками. Пожалуйста, ознакомьтесь с информацией ниже, чтобы выбрать наиболее удобный для Вас способ связи.
+
 Телефон: +7 (920) 469-69-50
+
 Email: [BlagoRussia@yandex.ru](mailto:BlagoRussia@yandex.ru)
+
 Социальные сети:
+
 1. Сайт: [![can.blagorussia.ru](https://favicon.yandex.net/favicon/v2/can.blagorussia.ru/?size=32&stub=1)can.blagorussia.ru](https://can.blagorussia.ru/)
 2. ВКонтакте: [![vk.com](https://favicon.yandex.net/favicon/v2/vk.com/?size=32&stub=1)vk.com/sanbirzha](http://vk.com/sanbirzha)
 3. Группа Google: [![groups.google.com](https://favicon.yandex.net/favicon/v2/groups.google.com/?size=32&stub=1)groups.google.com/g/canblagorussiaru](http://groups.google.com/g/canblagorussiaru)
@@ -26,4 +34,5 @@ Email: [BlagoRussia@yandex.ru](mailto:BlagoRussia@yandex.ru)
 9. Telegram-группа: [![t.me](https://favicon.yandex.net/favicon/v2/t.me/?size=32&stub=1)t.me/canblago](http://t.me/canblago)
 10. Яндекс Бизнес: [san-soobschestvo-agentov.clients.site](http://san-soobschestvo-agentov.clients.site)
 11. Форма обратной связи: откройте нажав на [**ССЫЛКУ**](https://partnerstvo.blagorussia.ru/2020/03/napisite-nam.html)
+
 Мы всегда рады услышать от Вас и ответить на интересующие вопросы. Желаем Вам приятного общения и надеемся на долгосрочное сотрудничество!
