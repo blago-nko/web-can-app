@@ -1,6 +1,5 @@
 ---
 title: "САН: Новые правила игры. Как агенту работать эффективнее и больше зарабатывать?"
-description: "Проект [САН (Сообщество Агентов Недвижимости)](https://can.blagorussia.ru/) превращается из обычного сайта в **профессиональную среду**, где всё устроено для уд"
 aliases:
   - "/2026/07/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat.html"
 url: "/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat/"

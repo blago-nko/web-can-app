@@ -1,6 +1,5 @@
 ---
 title: "Агент по недвижимости Бобров Александр Валентинович"
-
 aliases:
   - "/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html"
 url: "/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich/"

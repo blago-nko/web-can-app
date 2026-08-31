@@ -1,6 +1,5 @@
 ---
 title: "Система делистинга недобросовестных клиентов в сфере недвижимости"
-
 aliases:
   - "/2025/06/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti.html"
 url: "/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti/"

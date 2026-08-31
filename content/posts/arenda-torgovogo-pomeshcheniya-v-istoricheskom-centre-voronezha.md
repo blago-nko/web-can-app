@@ -1,6 +1,5 @@
 ---
 title: "Аренда торгового помещения в историческом центре Воронежа"
-description: "### **Не сдается, уже найден арендатор** Посмотреть другие коммерческие объекты Вы можете по этой [**ССЫЛКЕ**](https://can.blagorussia.ru/2025/10/kommercheskie-"
 aliases:
   - "/2025/05/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha.html"
 url: "/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha/"

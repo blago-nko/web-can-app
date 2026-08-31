@@ -1,6 +1,5 @@
 ---
 title: "Карта сайта"
-description: "## Карта сайта Загрузка карты сайта... Поделиться * Получить ссылку * Facebook * X * Pinterest * Электронная почта * Другие приложения ### Ярлыки [САН](https://"
 aliases:
   - "/2026/03/karta-sajta.html"
 url: "/karta-sajta/"
