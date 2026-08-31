@@ -137,9 +137,9 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjm4DRaK_2spPt3VyvMaA87PTFhuCDkTNfKT2WOhOLYlPkz_gM3yk-8bI7caqYoHtKGnwnMMRWAU6JDfp4i5mRlnEdGL7MOe9euwDLay9I0g5WCxcoiiGDo5L9Xvr8BHlak8_N4CFMqgm8N4vIvWJ-cPPkI2qU25SVYTGE2GYa8GVneUQoq6oMf6-xnIbY/w460-h640-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-6.jpg" alt="ЖК PROMETHEUS Помещение № 1 - 140,24 м2" title="ЖК PROMETHEUS Помещение № 1 - 140,24 м2"><figcaption>ЖК PROMETHEUS Помещение № 1 - 140,24 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dz3dwQBLdXF9EAqgze9zO9qZuwYmmwh4qDHjNVsUSLFSutMWqbFj3vnDfz45oBvsVIAesRVQJM6oDL5140-GCfl9IG1q1Er2FFmW4uaxXcDbQZYpd3H75p1AO5H3aOUIixSFEJf&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dw1Fp7ov_9zMfPcH_yS0V8_q-An6IcfPBTDPH39xkYox-bZNfxdaQ6jMNG04QqWjE55hxcGypXuvSJIG-XBG-Yf1rC-GSZD_urkNqij9O5XnMDnSaBJ5KvmEuonMu9XjR84ZQ&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyYGobkzItXkeI1Z1QbZSpMBrigbfqAaK5y5CyTWHZ3L_MQpnYXWJHy6wZOtkjXICiQI9SIvZmamNyqEUcOboKKe0B2G_enh4qVG8_SrJpHwU6qtXHguohWZFJ6d7oIfjS3UD3v&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwY22GsMq9vKSZXMJyUMWFjnRU6yAHcbimLU15nA9BFeDQEqxhJwwHQhU3bLh4pcUwc-szveRVfG6tUjZR9ZISos_mVdI0kk5D5Usv8Cw1DVpSgR0HRyJJS79zTL07efaneNZg&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmLHSp6kGZOkCjyafCOV5svZJC4kDwpbC9K4tRpI3xzEkMPpVPXGIzg_dbjbMzgsi_CJjrtqJ0mFtCfdwXNEROtKeWt1Zv5Yt4ohRhi0hDR_CWx4GfvnxbvrfMU89Pzz537XMV8zjmIaGTRpSSierI3Xc9-3ooYIm_2QwufaCDRlJs9ebbnFrRCI7pJ9w/w640-h480-rw/dce824a5-773d-488c-b3fd-745abb6dd63b.jpg" alt="ЖК PROMETHEUS Помещение № 1 - 140,24 м2" title="ЖК PROMETHEUS Помещение № 1 - 140,24 м2"><figcaption>ЖК PROMETHEUS Помещение № 1 - 140,24 м2</figcaption></figure>
 
@@ -159,7 +159,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjneUyCYBe_tC1FOCIBoR5y9O53F3Tp_8LWVH2x0N2WMki_yF0-SoDvh3Kwz04oeyqxd2KnwfvGEvgbDwVNy5_OOeY-n5HOLMSCvJAMbEXYye7ww_hVI6ofAk3vU2KkXXC7UTNQhB14OrWqPFso_CoX5ycp5_WVkFFHI8BIJweLUP7o1jAmAszOQCoa-fI/w560-h640-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-7.jpg" alt="ЖК PROMETHEUS Помещение № 2 - 137,13 м2" title="ЖК PROMETHEUS Помещение № 2 - 137,13 м2"><figcaption>ЖК PROMETHEUS Помещение № 2 - 137,13 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyyry_sufcTNGuSoIeZUu3UqdTmfnpt3G3pnPaiB6jHhHLTboEQF1FiZ0KNzJAVKlGy55DXRzNRSJGbZjsdZXcDMDAvgSmxuluX4Kgn0_qaZZ-TKI2S3YAdT3t5WcXmljf7OOwK&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwUxVdu2tfRNzuo4lL5LfDYtSc0ZksdVZNJMCECel6cL6IiCdxi_YqgGKKo7K70peBNpn7xPah8JxWC7h-ghBzUObyRRQyJnaAAGyKQK4XCxq2v6GZixy3-ATkJSqrpCI0XGu1S&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXQUOJKCDhzJx6lA4AaKfhinzJS99xeCfBmKKep5krcgoSGEOqP9mC6bBSe1gNvDYEjJmizFFllspHkmXseK9T0X-n2muuF_iFy6T3QSrxSs0kQEauz3V8kMf1BrPcCsDmpkG5g5SBURKazY_YVzhD5-Blrs3mET-8yq2-daLAicgtnkEk4vL_KE5KTAM/w640-h480-rw/5458592413615518971.jpg" alt="ЖК PROMETHEUS Помещение № 2 - 137,13 м2" title="ЖК PROMETHEUS Помещение № 2 - 137,13 м2"><figcaption>ЖК PROMETHEUS Помещение № 2 - 137,13 м2</figcaption></figure>
 
@@ -183,7 +183,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyi8h44IO-uyiMAhvXbh5aTb59SXU408sYzBniruvRvu_zjgrdDRp8BKf8pbZ3d4e6X8OrDNOoJV3DiMuw0qX4LgfEf8NG8hVU7563UwIEa2XHn-2zxjXMZHZePt1xluG3Bn8qCeatgDWZ-bA2kDzeg0zp3jYiRfPSEdduXxN7zKDZsNTYTTAE5Kec3Ps/w640-h626-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-8.jpg" alt="ЖК PROMETHEUS Помещение № 3 - 96,18 м2" title="ЖК PROMETHEUS Помещение № 3 - 96,18 м2"><figcaption>ЖК PROMETHEUS Помещение № 3 - 96,18 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxVUz7fY62aaqwjfLMFMfFujkoYgoGChYr8F3xZGpDQps8NhWTqCiAgbeBu3uNCFTydbrYJ1frBWw_ztTnolLvqhnzT01uWF_8JiphRbBc1wIC3TGvwBhtJvLIui7-x2wYsRVU&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxE68MVPfaCJ_EnZPfGYQS-iAocxWVAe0eclqC6FSPzdbXAZ7gcxojX38ncWnYvlYhCv09pfMcTI4MSlV1609i9NFNoNOL055ujiMhk1BNqh12RgcsJj_ortjQtAg-YjPNFwx5L&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmBn50ip_gHrOsYbJsI5agTw4SxElMAG48Jin55tMeiwGr3ndmURbJVdno_IVESE1YnyTQOqDW07_sLm-Jipb8WcWOs2TVzTlRW6BG9NkPCE1qLGlkt0evpkJTep7aCdCzfiJ3dypBuwo90i4cPk9CtqsyTblfFY2qvt4tZCB4WCX99tWeTtPZHcW7JGo/w640-h480-rw/5458592413615518981.jpg" alt="ЖК PROMETHEUS Помещение № 3 - 96,18 м2" title="ЖК PROMETHEUS Помещение № 3 - 96,18 м2"><figcaption>ЖК PROMETHEUS Помещение № 3 - 96,18 м2Помещение № 4 уже реализовано</figcaption></figure>
 
@@ -205,7 +205,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeboHu8oHGJfB5QDKvsbY9hYSNzoXxYFNSmIwVMTvmRkXoJhv6murIETbbBv4MK0a3faLiKUb-x3CkTpv7gH6-1XfBqJ330e6VKtl-9kRAzHs8UR5F018TWPkOTibYZAYPdAIJudwJK9ubqpFxvNqbC66venIHHnMjFG5JKl6KirIe8DDxb1yoOwiciD8/w638-h640-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-9.jpg" alt="ЖК PROMETHEUS Помещение № 4 - 82,75 м2" title="ЖК PROMETHEUS Помещение № 4 - 82,75 м2"><figcaption>ЖК PROMETHEUS Помещение № 4 - 82,75 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dy1ngGAdawRihQxiUMocmYZmgXKKrGLWfOT0MZydHDQKsFih3eQvUSlDgnBvYnoXK6jRXqdeTIxxwTUCr8nhe56j3UrxBYk17F4YZPdjU0nFKgbu5-xaLpaKJC1iJRbbjbz&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dy_QnS9kdTkGJshFk_AGaK5OVJjFa4--JsTi7cR2uiVc50_cn0XFGpILi7G5Rg_S8w5h7MOavslfdGYscwxlLtGhJ9CxQPuaxvuejaOb7WSfDMgOGCCzTKW7yLSmjVuyGKqg6I&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg8sBDZhmGH80qouQKNAMTTenQ89-cKzQ6K6LjIst3JRNqGEP_gCFIp_gHHvR8w9Zom7KRqELCZjyLMafLZgZlfpVJrVvyCc0tVVmYSgOm2ItpVp9pK4VIcgjwtgrfMrYGdZhjcxp3yl1nNGP0I_mVd-wcJL7GGjyA9cnTH1ct9mpJpg4KmfcOdZDt7F4/w480-h640-rw/5458592413615518995.jpg" alt="ЖК PROMETHEUS Помещение № 4 - 82,75 м2" title="ЖК PROMETHEUS Помещение № 4 - 82,75 м2"><figcaption>ЖК PROMETHEUS Помещение № 4 - 82,75 м2</figcaption></figure>
 
@@ -231,7 +231,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XYNhjCUo3Zq8J24rfttLaE6UNxxbAnfwbGVVJ7Es4PJMd_IP1h0autAKPbtrS9AQlaZv7MEm6tmIv0CjhmZgNIQ37d64DJlhGlBG2Al9xNgjknG36HdqilDDUDCPTRgXSo72kWUOomvHkq9uMQ5V3WF4Z4vdNrJV_b24XSNYouWo6M9nWC6toshya-o/w640-h632-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-10.jpg" alt="ЖК PROMETHEUS Помещение № 5 - 116,76 м2" title="ЖК PROMETHEUS Помещение № 5 - 116,76 м2"><figcaption>ЖК PROMETHEUS Помещение № 5 - 116,76 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dy_1AgyqYAwzyvZDt0l31Bc3hj9vHkJH0KYNfkZuU8KapIDMoiYiMxOEjh3WOgR6U0F1vcY24IiVzSeOF6pmsZbMUwhuOHHwaY7yXoDCv8tH6o_X9AFbFHE2FM5QvQ4LzFZjw9u&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwoWV7k1c2uRU2ZtOS9fW7Bz5MsAJNomCPprRRFI4gW2F2Upmpj7EsLnOwlSebOEjaCCPn53SX_50Q4kBHi938Ijg1lroQttK9ldezwh8MC4IuKQqbufG_9xT_a3dkCf4jRIgc&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-1j4qYskiowbHrKI_5DzZ5QzTBXLxcw7dun3OVjy401mbjuEg87LbVaR-CQEAY2Wgt_dCct5nvN1DMyjpBjQ-ZRgCGcCBKgjMOu7bO2nKJBO2Xy_IZYTFLoiAimcU_WkZ51ks29fiipkU-yg_GVHvQntg5E7EP2pd8XHgY1fpDmhDexD73gE63-_Vmcw/w640-h480-rw/5458592413615518950.jpg" alt="ЖК PROMETHEUS Помещение № 5 - 116,76 м2" title="ЖК PROMETHEUS Помещение № 5 - 116,76 м2"><figcaption>ЖК PROMETHEUS Помещение № 5 - 116,76 м2Помещение № 6 уже реализовано</figcaption></figure>
 
@@ -253,7 +253,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi09MniO7_QFc9Lj7iNoT7NlX6ngoGLtpgzlFFMbmrg1vuA2DPQ_PikgJZhJd3PADF0P3ELmjF4QMzyjXoRRL-AT90Wn9vjDTn9hTQP6TezrvYw2NsZ2b9XIVo4sijeKncpRHb-e5xlgXaEkwILbaX_yoJYk6FKvt8AXD645H0tNrlTb3icB-X7aAmb2qI/w408-h640-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-11.jpg" alt="ЖК PROMETHEUS Помещение №  - 21,29 м2" title="ЖК PROMETHEUS Помещение №  - 21,29 м2"><figcaption>ЖК PROMETHEUS Помещение №  - 21,29 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxFdF5HK4aU9-YxE7fA_aCNdJZze4w0KC1rFWDcsixoOqVNpby24Zju4vXey11otk24-JsOjCg466P-ov2zxYWx67BNmADlQ9qEi3s-QHTlkomAoyhL_8r7UQGqN9UQ4pPOw6xr&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwvOAdsiyrxezZcsQM7k8uRY-7bjlF3j0H-KY5x1PVH5YY76jMox-d3LzmwIF1JIPNB8gGig33NG-sLZ5BBj59kxCdRQSXPwFyMAgYkCAi0nV78HmCEKiQw7iwF-p1Nuzbed4bG&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZtYwOR8PWKxALFnAxVQwIa6f8xbHuc6s65eE6a83WvpXLpQ0GC8IsioGKPIQN4-Jj1qo7WUBKUDOqYqOOJDIZ0SX_3iOtVda9yTbZ_eNd78uJw7FKYqNVcniBnDfgRt-oz11DViZJPfNctCxpnZSdwg5eFqm3x1Aw7I35yUR6XJD2RT7mwAXA33Rlf_o/w640-h480-rw/5458592413615518975.jpg" alt="ЖК PROMETHEUS Помещение №  - 21,29 м2" title="ЖК PROMETHEUS Помещение №  - 21,29 м2"><figcaption>ЖК PROMETHEUS Помещение №  - 21,29 м2Помещение № 7 уже реализовано</figcaption></figure>
 
@@ -275,7 +275,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyH5V3vUiDUzmCva2N2kYCLWzAbLQuWxk4jN06arEZlTNSJzGkfp6gY_NgpwJ61Emnsk1fcqzowq5lAq1tJ4u-rDd0-bC2-qiS3_HWj9TEbphWBBaMOopTrDtgMZof4GOH_Y5vRWknJ8X0lDxYFDuI2MoIcHUL9pzhM1bofAABdMxespulCWL16ghQVk4/w490-h640-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-12.jpg" alt="ЖК PROMETHEUS Помещение № 7 - 96,51 м2" title="ЖК PROMETHEUS Помещение № 7 - 96,51 м2"><figcaption>ЖК PROMETHEUS Помещение № 7 - 96,51 м2</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwAkP3r14yNxNToXkIuyygsEcHWljnx_f2STQjHJvYQg33dxRqzv2_Ciz9cibHac5rv9zMYvtMxgFgxXcUl3crrsZTFjDsWQctdGXj4Z6KSgDG5e9u-9bV83ME-nwLFM2QKbVU8&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzBlHazs_9PUr55SRil5gfmeVPyVDSm3pS_pUxFpIf5FH_W2G7Ux1NOklU6n_tR-R3x1IFqq1ZbzdAdbWksL0pDNb_HKlVQMFnsbAgLv_5MFSKBNkljjvKz8kzw0sGpr_Z59YUg&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG3XAh8anMsfzTQh3J9Tki5b8yfGKGHcfODs0vsULndWYzjbIiZu_wbTBEn5eYvvXUMgLJjTzI2LlFuZ6L54WcmDBK7Drv0GZgAEfazccWYqd3DjU0T0PJTLNyBrdHKdif7_1dpHh05DDhMg99O2Mi4rb454u-CmwdqU-aS2_gfK2flMTeadIlq9tWr4k/w640-h480-rw/5458592413615518974.jpg" alt="ЖК PROMETHEUS Помещение № 7 - 96,51 м2" title="ЖК PROMETHEUS Помещение № 7 - 96,51 м2"><figcaption>ЖК PROMETHEUS Помещение № 7 - 96,51 м2</figcaption></figure>
 
@@ -289,7 +289,7 @@ date: 2025-07-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDEdHzLG75_TkOOeJUPpPDEPdcDoHDanevWxF0cSFwyMtmHEXJ0gT_EGcGwxTP1vRn-H_HQBn-Ykga6roTFsZJDB4uaIzPVWPxTTIM6u-wAqcKcFiB4PJQSrKrhfDFRB1bniNXxwBOEVOu36Vaeo_9udJBM6RR3BbhKUC486yfNME9aPGA81wHoka1-Jk/w640-h480-rw/5458592413615518929.jpg" alt="ЖК бизнес-класса PROMETHEUS (Воронеж)" title="ЖК бизнес-класса PROMETHEUS (Воронеж)"><figcaption>ЖК бизнес-класса PROMETHEUS (Воронеж)</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzJcZXB_Mhp-9UtTYrN7k94uODF9zH4Hyu8YbO9RrwV4oipQny2azJBrjG_QPQNGTTfXflJphYNpKtpEdbIZM-Py23LYW6g8g6FK9KbqV11jcfJXh2cwPrjNsS-vq-BGaA4Qlr0&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dydRK87Ry0GaVdYxji6v28oMTitW4ufT54NzFwQAbKJoJQfZ2HotB4aiqflAvEopc1EBUJebI_QFCN53BmRotyOW5qULU3xWQb8IJZ7MLEa3SaW2a_jgYbvjd2aqtgBJoNJd3E&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 Вид со второго этажа ЖК бизнес-класса PROMETHEUS (Воронеж)
 

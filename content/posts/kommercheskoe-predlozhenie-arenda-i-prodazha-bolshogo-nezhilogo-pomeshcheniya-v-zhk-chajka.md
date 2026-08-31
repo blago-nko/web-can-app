@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/w640-h410-rw/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxaWv8nSa6kXLvJr3szP8vA7ACBmtJ41lGCuCXafPNVKwHRfm6OwjUAnjZHfwdCevcSrQcqpA1BdW6cTeydnLLVtu8KM-IxQ4nQ8ijC45Ard1RqiAzVJGZo4GOIqvRFYHicIA&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dy067Vqemlfj1sJObgFRRn3LdtMrdQZ1r4y1bCDKZhWWl_tLr3enJiOa2qvi3B_xjsd04jd4B-WOANVN5ziMuLx6f0gnDPCVQisbh50SKZpTsXYg1vASBSbQ6zKRqb9yuREXGvW&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dynw9EjnhVhZFGQBZiI7WIHWVi3vG-duZoUCdZO-0PfSh4jpUxZnvTHjexZomXDxcmcYDRo2a_q4xclRp5T45dAkU0DNrH865RroP8QwcDfpsh-j502uRTNLUWx1HaLILYpyew&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwIISGgtKXmc6-0uPmVB-jPS-0qEmcPJR59eh259FAraY2OzZRgdoBbHwzRk0HltI_e8KKefZipJ-vsauakZa9qP8V6q-5P-3tUa98iROSmPNBwhLZQxwOZ-s-L3gp8O-ywEhg&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxebx1MZGKosGNpGBrWXjbdhNWVWhfWMMT9I8s7wE5hp9vUIAKWuXdjs1Km4wHzYJR9_5C7-oNUnMenfW8R0sV-K9WeDXTgAt4JatpgDEN47NDym4Srl9X3vqhyUn4K1E1ITA&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzIAsiimgmz0W8chjHWOWGYCFJk6hFeHetk-ex0OSThAHgjuNYahYkugL3O2kHwUdASRbnpE6JRJ0WpN3cQ69aD1_lD_EMhjX0XCmtLVXkJyb71eWPGtmOq9ZbW0DobWCGeiA&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dx8K0PKhmIsBc4JQSZ9BIExCurHPAnUb53oLURmjLWGuiOt78-Kq_smN729HZjKZDzFr86zjoH5hoVUhKrBvKjuHbi-0lTPuJUZ0A2BbljWl3XJZnYYaRDUhMRqIGtVp24Kbko&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dy8wIB0mUlEpkJve3a7XusfaioVAqwCD-_zDFY5Ulvo2GYT1MSdlX5HQDc504SYns6qYkTNkCYgSAkXTg0KWsyWodg3aayd75mQHS9eceiMBnvkOM8idrlZ5AivQsqesSbAe1Y&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/w482-h640-rw/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
