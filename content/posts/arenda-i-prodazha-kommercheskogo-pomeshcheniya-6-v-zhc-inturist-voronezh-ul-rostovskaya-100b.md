@@ -169,15 +169,15 @@ date: 2025-11-01T00:00:00Z
 
 #### Видео
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dx08rxFBGWupTXQCr7cVv2Qu_CG4YkreY7qL_fgDWC5qAsFYhusywuoeF96WsDu32MY8KHLJynj-7W3sjY97RU9n6_TWcA7CKkoL4MxLDe2Q8OngeTH898WzcL8blHNoVBnCVY&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dz_53zLHaZ8RYUbtlnlTpCNP-Pwizj4piNjtpv6K4rfYfznB4qfZ7SlIyOyn1Dud6kyFY13cTDWW9FQV1-QvuzekIm2nA23C8wmCX33MG6ep221z8maIDITy_Q6p_-CrnLnLaoA&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwuBXcxs5_NHdLltftNEJzNpUrLqIQXX6Z60gz_OW4phKI1iV9NPJh5DiDY1E7XD7_54-Gatfkcl7EtY4Jrv9nnp2eqDiJqBNo3BjgGHESX0bPz_VmuAytj-2Uy2TW3gRA-0QY&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyu_t4Sn6WO4BSRIwJ54wIV4fb0ZVUfo1NbzqOFZlfKeVkGHs885BY5tZnhamAxCHLrABoSoBotW9xpLXHCwx1-lw809bxzLe2V4RU9OhMcfOWMebioYS9WR47f1EwzhwHW1ck&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxwiION8YPYix7oyzljnyZWl-lYj8XXpKVjKTuAuXGCL7AZ38g1SbryGnyROnsDApB-sqmB0PothIlwblbBcE_yausdbUZTaLV2_niNP-TF9RU3r0fmrGhHP-EZlotjgSo9dgs&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dw2f8ZdPb0k0qcVz8J_zXa26szCUZp_deeoINGWvBioMbcP8sdSKDvCWuTRmmpEUdptM1cPQiRQ3dMmbibQPSiBJdX08Zd6xbEUGLCozdTruMQOP8NX4QIo8x565KfNQgCE_VP8&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzqX0_uj3baxdwh_jMmGBEyRUK0l6tHIOiWSpRK_X32cceU_pAsj5hvgsXFyq-UVdK18nLDB70M4SELcKbsyjG7_FRzlET6VUMy9YeB65ylSg5P1MhDaiVjQdh0qCEhp_tKQMuF&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxiROOG8wAXh0odckbzOpbFTe1QHMxHgXoZn_kYwXnZocsUTm3o42p71i2FfvPGrZTLbDI9zrYPvLB_GKWa_FI6SM9G4j4-QXDf7hj76p0EUvm0r74zFYRuRv4GeeGkpLFBtqRd&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyqVwB-wTFNEReKM7gP-O23keepqycJRGHW8orM_EO_5bhM17eNmeOsEOrlI5ftcwyE76KpKOntcJW-jkOs3DMEVJS5oNyw2lwIpwyKNdwq_TqCcEfk5suFSR-3S9pELHg7Xkk&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dw_ysKdE_xH-gwwBt8XffQln18e7qzgEkUl4YcZQPzqsMjdnkdr_2h63SuTE1QLK_x0fFCIkQaX3l_YRoXfjQ9yQDHp6z9Ix8cTgqGOkz3gW4-XtWNxhrJCHU4mv_07LQJY7NNS&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 ### Контакты для связи:
 
