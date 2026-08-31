@@ -5,7 +5,7 @@ aliases:
 url: "/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat/"
 date: 2026-07-01T00:00:00Z
 ---
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxewBaT8yE5AQie-vRuLIH56imHV-wNr4tSbvQyQnxmDOHoMbaWFdJinMuEpUSRolBqvJLRhbzj5gEG9_ID2M_EK0oacOSr4ebTmPUl-ycl3EjKZfoaD-eGS3xl0y5BDGeH4_Yv&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwqlvQG9MlmXGtNvLy3U5FjpdzqrU6oMdmx1Pt3iIdjakworjL1mtbKiMitNET_Us-uPV51KT2qpI-k3Q0pLjkR0y0FmabgWf8YaBtrRwTTZVpAYHYVCx24zK6YvYOEi9pY2jfP&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 Проект [САН (Сообщество Агентов Недвижимости)](https://can.blagorussia.ru/) превращается из обычного сайта в **профессиональную среду**, где всё устроено для удобства и защиты интересов агента. Платформа переходит на международные стандарты работы Мультилистинговой системы (MLS), но делает это просто и понятно для каждого участника.
 
