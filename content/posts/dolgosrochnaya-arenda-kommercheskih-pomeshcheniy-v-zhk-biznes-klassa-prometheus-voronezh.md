@@ -5,275 +5,307 @@ aliases:
 url: "/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh/"
 date: 2025-07-01T00:00:00Z
 ---
+ЖК бизнес-класса PROMETHEUS (Воронеж)
 
-|  |
-| --- |
-| ![ЖК бизнес-класса PROMETHEUS (Воронеж)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5ca6mpUyKByEob6BiwxkesVfLdMBbgmjh37CUyJsQKIuX_m2N8oKRGJklGRWpSo7prBTDVDvp2MNjvtaPjR7SF7NwZlDXeDHsFkt28Dhl6TnBgku6aLj-_DTwjfjp44o9t7ldS8v5EOCIDxXhwOhn9CJjo36WVu0SzEzZof_ITjuhVSrsWsP05xs_htk/s1280/5458592413615519006.jpg) |
-| ЖК бизнес-класса PROMETHEUS (Воронеж) |
+![ЖК бизнес-класса PROMETHEUS (Воронеж)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5ca6mpUyKByEob6BiwxkesVfLdMBbgmjh37CUyJsQKIuX_m2N8oKRGJklGRWpSo7prBTDVDvp2MNjvtaPjR7SF7NwZlDXeDHsFkt28Dhl6TnBgku6aLj-_DTwjfjp44o9t7ldS8v5EOCIDxXhwOhn9CJjo36WVu0SzEzZof_ITjuhVSrsWsP05xs_htk/w640-h480-rw/5458592413615519006.jpg "ЖК бизнес-класса PROMETHEUS (Воронеж)")
 
 ## Аренда коммерческих помещений в ЖК бизнес-класса PROMETHEUS
 
 ### Расположение и адрес
 
-* **Адрес:** г. Воронеж, ул. Средне-Московская, 60 (пересечение с ул. Революции 1905 года)
-
-* **Район****:** Центральный, историческая часть города
-
-* **Жилой комплекс****:** PROMETHEUS — дом бизнес-класса с авторской архитектурой. Четыре секции переменной этажности от 5 до 12 этажей
+- **Адрес: **г. Воронеж, ул. Средне-Московская, 60 (пересечение с ул. Революции 1905 года)
+- **Район****: **Центральный, историческая часть города
+- **Жилой комплекс****: **PROMETHEUS — дом бизнес-класса с авторской архитектурой. Четыре секции переменной этажности от 5 до 12 этажей
 
 ### Параметры помещений
 
-* **Площадь:** от 21,29 до 140,24 м²
-
-* **Этаж**: первый
-
-* **Высота потолков:** 5 метров
-
-* **Количество помещений**: осталось 2 помещения из 7 разной планировки
-
-* **Возможность перепланировки:** да (объединение и разделение помещений)
+- **Площадь:** от 21,29 до 140,24 м²
+- **Этаж**: первый
+- **Высота потолков: **5 метров
+- **Количество помещений**: осталось 2 помещения из 7 разной планировки
+- **Возможность перепланировки:** да (объединение и разделение помещений)
 
 ### Технические характеристики
 
 #### Конструктив здания:
 
-* **Стены:** бетон, с внешней отделкой из декоративного кирпича с алюминиевыми композитными панелями
-
-* **Перекрытия****:** железобетонные
-
-* **Полы, стены и потолок:** черновая отделка
+- **Стены:** бетон, с внешней отделкой из декоративного кирпича с алюминиевыми композитными панелями
+- **Перекрытия****: **железобетонные
+- **Полы, стены и потолок:** черновая отделка
 
 #### Коммуникации и оборудование:
 
-* Централизованное отопление (биметаллические батареи)
-
-* Холодная и горячая вода
-
-* Канализация
-
-* Электричество: от 3,4 до 25 кВт (возможно увеличение)
-
-* Системы проточной вентиляции и места для кондиционирования
-
-* Возможность подключения к Интернет и [Wi-Fi](https://www.google.com/search?ved=1t:260882&q=define+wi-fi&bbid=8766834561573984121&bpid=4176131897420839958)
-
-* Системы противопожарной безопасности
+- Централизованное отопление (биметаллические батареи)
+- Холодная и горячая вода
+- Канализация
+- Электричество: от 3,4 до 25 кВт (возможно увеличение)
+- Системы проточной вентиляции и места для кондиционирования
+- Возможность подключения к Интернет и [Wi-Fi](https://www.google.com/search?ved=1t:260882&q=define+wi-fi&bbid=8766834561573984121&bpid=4176131897420839958)
+- Системы противопожарной безопасности
 
 ### Особенности помещений
 
 #### Окна и двери:
 
-* Витражные окна (алюминиевые)
-
-* Навесная вентилируемая фасадная система с панелью над входами и витринами с облицовками плитами Аквапанель
-
-* Стеклянные входные двери (1-2 в зависимости от помещения)
-
-* Выход на улицу
+- Витражные окна (алюминиевые)
+- Навесная вентилируемая фасадная система с панелью над входами и витринами с облицовками плитами Аквапанель
+- Стеклянные входные двери (1-2 в зависимости от помещения)
+- Выход на улицу
 
 #### Дополнительные преимущества:
 
-* Возможность размещения санузла (туалет, раковина)
-
-* Размещение наружной вывески до 70% длины фасада в пределах помещений, занимаемых одним арендатором с высотой не более 0,84м
-
-* Возможность создания витрин согласно муниципальным нормам
-
-* Установка консоли до 1,5м в высоту на расстоянии до 0,4м от стены с максимальной шириной всей конструкции — 0,9м
+- Возможность размещения санузла (туалет, раковина)
+- Размещение наружной вывески до 70% длины фасада в пределах помещений, занимаемых одним арендатором с высотой не более 0,84м
+- Возможность создания витрин согласно муниципальным нормам
+- Установка консоли до 1,5м в высоту на расстоянии до 0,4м от стены с максимальной шириной всей конструкции — 0,9м
 
 ### Инфраструктура и транспортная доступность
 
 #### Локация:
 
-* Высокая пешеходная и транспортная проходимость
-
-* Крупнейшая в районе транспортная развязка через квартал из 3-х и 4-х полос автомобильного транспорта
-
-* Остановка общественного транспорта (автобус и троллейбус) в 400 метрах
-
-* Парковка от 10 машиномест на уличной парковке и около дома
+- Высокая пешеходная и транспортная проходимость
+- Крупнейшая в районе транспортная развязка через квартал из 3-х и 4-х полос автомобильного транспорта
+- Остановка общественного  транспорта (автобус и троллейбус) в 400 метрах
+- Парковка от 10 машиномест на уличной парковке и около дома
 
 #### Окружение:
 
-* Развитая городская инфраструктура в жилом районе с застройкой от 5 до 19 этажей
-
-* Удобный автомобильный подъезд
-
-* Около дома: асфальтированная территория и замощенный плиткой тротуар с газонами
-
-* В близлежащих кварталах расположены: Историческое здание - [Храм пророка Самуила](https://samuil-vrn.ru/); [Музей - Сладкие истории](https://www.uniconf.ru/museums/muzey-voronezhskoy-konditerskoy-fabriki/#master); Бульвар; Развлекательные заведения; Детская площадка; Дошкольное учреждение; [Школа №9](https://schoolmboy9.obrvrn.ru/); ВУЗ - [Воронежская государственная академия спорта](https://www.vgifk.ru/) (Учебно-спортивный корпус им. В.И. Сысоева); Спортивные сооружения - [дворец спорта Юбилейный](https://yubileyniy-vrn.ru/) и [бассейн Спартак](https://spartakswimkids.ru/); Фитнес клуб; Заведения общественного питания; Продуктовый магазин; Универсам; Офисные государственные учреждения - [государственная телевизионная и радиовещательная компания](https://vgtrk.ru/) и отдел миграции по Воронежской области; Учреждения здравоохранения - [Воронежская областная клиническая офтальмологическая больница и поликлиника](https://www.okob.vrn.ru/); Почтовое отделение; Промышленное предприятие - кондитерская фабрика
+- Развитая городская инфраструктура в жилом районе с застройкой от 5 до 19 этажей
+- Удобный автомобильный подъезд
+- Около дома: асфальтированная территория и замощенный плиткой тротуар с газонами
+- В близлежащих кварталах расположены: Историческое здание - [Храм пророка Самуила](https://samuil-vrn.ru/); [Музей - Сладкие истории](https://www.uniconf.ru/museums/muzey-voronezhskoy-konditerskoy-fabriki/#master); Бульвар; Развлекательные заведения; Детская площадка; Дошкольное учреждение; [Школа №9](https://schoolmboy9.obrvrn.ru/); ВУЗ - [Воронежская государственная академия спорта](https://www.vgifk.ru/) (Учебно-спортивный корпус им. В.И. Сысоева); Спортивные сооружения - [дворец спорта Юбилейный](https://yubileyniy-vrn.ru/) и [бассейн Спартак](https://spartakswimkids.ru/); Фитнес клуб; Заведения общественного питания; Продуктовый магазин; Универсам; Офисные государственные учреждения - [государственная телевизионная и радиовещательная компания](https://vgtrk.ru/) и отдел миграции по Воронежской области; Учреждения здравоохранения - [Воронежская областная клиническая офтальмологическая больница и поликлиника](https://www.okob.vrn.ru/); Почтовое отделение; Промышленное предприятие - кондитерская фабрика
 
 ### Условия аренды
 
-* **Стоимость:** от 2000 до 2500 рублей за м² в месяц в зависимости от помещения
-
-* **Собственность****:** юридическое лицо
-
-* **Обременения****:** отсутствуют
-
-* **Строительные каникулы:** да
-
-Для просмотра помещений и обсуждения условий аренды [**звоните и пишите**](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html) прямо сейчас! Можно рассмотреть различные варианты сотрудничества и обсудить индивидуальные условия.
+- **Стоимость:** от 2000 до 2500 рублей за м² в месяц в зависимости от помещения
+- **Собственность****: **юридическое лицо
+- **Обременения****: **отсутствуют
+- **Строительные каникулы: **даДля просмотра помещений и обсуждения условий аренды [**звоните и пишите**](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html) прямо сейчас! Можно рассмотреть различные варианты сотрудничества и обсудить индивидуальные условия.
 
 #### Контакты для связи:
 
-* Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
+- Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)
+Локация ЖК бизнес-класса PROMETHEUS
 
-* Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
+![Локация ЖК бизнес-класса PROMETHEUS](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjE7PBR07RiCH5iM1OoWd_yN91_m59T5C2PNto6iXXqLO-GElekF2zdtnz1cnfA8gwL6fGDXOSIcl5lsNyZhSGzaiZSDVQLDrOZnHT5EJ_9kJ9uZsUw-t9o7gtQ7RaEWjPHg8BgQYmhGRr6we0aQ9pu0Z7es-Q70ICIkuPWMAtfc82f-on6Btx29df0jts/w618-h640-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-4%20(1).jpg "Локация ЖК бизнес-класса PROMETHEUS")
 
-* [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)
+### Помещение № 1 
 
-|  |
-| --- |
-| ![Локация ЖК бизнес-класса PROMETHEUS](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjE7PBR07RiCH5iM1OoWd_yN91_m59T5C2PNto6iXXqLO-GElekF2zdtnz1cnfA8gwL6fGDXOSIcl5lsNyZhSGzaiZSDVQLDrOZnHT5EJ_9kJ9uZsUw-t9o7gtQ7RaEWjPHg8BgQYmhGRr6we0aQ9pu0Z7es-Q70ICIkuPWMAtfc82f-on6Btx29df0jts/s1710/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-4%20(1).jpg) |
-| Локация ЖК бизнес-класса PROMETHEUS |
+- Площадь - 140,24 м2
+- 2 000 ₽/м2
+- Электрическая мощность - 25 кВт
+- Мокрые точки - 2 шт.
+- Вход - 2 входа с внешней стороны
+- Расположение помещения - со стороны ул. Карла Маркса.ЖК PROMETHEUS Помещение № 1 - 140,24 м2
 
-### Помещение № 1
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dy3wm_q6V7s3a3qimmOHwIvOyCyFbmf5BHHZ6pTO2IVSacSsifSMzg3MDcYhMLl4BVGmx0LUbQzrAUuPl-hpmXM2isEzRsRaULdmaCrFI5-zBWzO0ZFpkz4kHLyPgOpIMGg4Uo9&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-* Площадь - 140,24 м2
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyUL7vJm3wxngq11wRWq2d5PXB1JcpVzYj_G_w3XMmXKUfkVVetlSKaKTkkXUCYzW-1oEdey7NuChBQC1p8OOwURj-BHmq4ufA8-7MSJ1yoM3QxQZ185ZhYxeF7PpdR1rmiIWE&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-* 2 000 ₽/м2
+ЖК PROMETHEUS Помещение № 1 - 140,24 м2
 
-* Электрическая мощность - 25 кВт
-
-* Мокрые точки - 2 шт.
-
-* Вход - 2 входа с внешней стороны
-
-* Расположение помещения - со стороны ул. Карла Маркса.
-
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 1 - 140,24 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjm4DRaK_2spPt3VyvMaA87PTFhuCDkTNfKT2WOhOLYlPkz_gM3yk-8bI7caqYoHtKGnwnMMRWAU6JDfp4i5mRlnEdGL7MOe9euwDLay9I0g5WCxcoiiGDo5L9Xvr8BHlak8_N4CFMqgm8N4vIvWJ-cPPkI2qU25SVYTGE2GYa8GVneUQoq6oMf6-xnIbY/s2000/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-6.jpg) |
-| ЖК PROMETHEUS Помещение № 1 - 140,24 м2 |
-
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 1 - 140,24 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmLHSp6kGZOkCjyafCOV5svZJC4kDwpbC9K4tRpI3xzEkMPpVPXGIzg_dbjbMzgsi_CJjrtqJ0mFtCfdwXNEROtKeWt1Zv5Yt4ohRhi0hDR_CWx4GfvnxbvrfMU89Pzz537XMV8zjmIaGTRpSSierI3Xc9-3ooYIm_2QwufaCDRlJs9ebbnFrRCI7pJ9w/s1280/dce824a5-773d-488c-b3fd-745abb6dd63b.jpg) |
-| ЖК PROMETHEUS Помещение № 1 - 140,24 м2 |
+![ЖК PROMETHEUS Помещение № 1 - 140,24 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmLHSp6kGZOkCjyafCOV5svZJC4kDwpbC9K4tRpI3xzEkMPpVPXGIzg_dbjbMzgsi_CJjrtqJ0mFtCfdwXNEROtKeWt1Zv5Yt4ohRhi0hDR_CWx4GfvnxbvrfMU89Pzz537XMV8zjmIaGTRpSSierI3Xc9-3ooYIm_2QwufaCDRlJs9ebbnFrRCI7pJ9w/w640-h480-rw/dce824a5-773d-488c-b3fd-745abb6dd63b.jpg "ЖК PROMETHEUS Помещение № 1 - 140,24 м2")
 
 ### Помещение № 2
 
-* Площадь - 137,13 м2
+- Площадь - 137,13 м2
+- 2 000 ₽/м2
+- Электрическая мощность - 24,5 кВт
+- Мокрые точки - 1 шт.
+- Вход - 2 входа с внешней стороны
+- Расположение помещения - со стороны ул. Карла Маркса и ул. Революции 1905 года.ЖК PROMETHEUS Помещение № 2 - 137,13 м2
 
-* 2 000 ₽/м2
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyLg0S2GYPNSScytfo8WoGe-xeYYv1oITPPKtP8Eh9lY58t84dsBkzZDwOn8uKkSnTHlZKzsluledGbWSsf2lsW1pX_w5W4zEBrnQ4UMheuHX2wcr1NYxQLNFg1-Wrdw1eN&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-* Электрическая мощность - 24,5 кВт
+ЖК PROMETHEUS Помещение № 2 - 137,13 м2
 
-* Мокрые точки - 1 шт.
-
-* Вход - 2 входа с внешней стороны
-
-* Расположение помещения - со стороны ул. Карла Маркса и ул. Революции 1905 года.
-
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 2 - 137,13 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjneUyCYBe_tC1FOCIBoR5y9O53F3Tp_8LWVH2x0N2WMki_yF0-SoDvh3Kwz04oeyqxd2KnwfvGEvgbDwVNy5_OOeY-n5HOLMSCvJAMbEXYye7ww_hVI6ofAk3vU2KkXXC7UTNQhB14OrWqPFso_CoX5ycp5_WVkFFHI8BIJweLUP7o1jAmAszOQCoa-fI/s1898/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-7.jpg) |
-| ЖК PROMETHEUS Помещение № 2 - 137,13 м2 |
-
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 2 - 137,13 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXQUOJKCDhzJx6lA4AaKfhinzJS99xeCfBmKKep5krcgoSGEOqP9mC6bBSe1gNvDYEjJmizFFllspHkmXseK9T0X-n2muuF_iFy6T3QSrxSs0kQEauz3V8kMf1BrPcCsDmpkG5g5SBURKazY_YVzhD5-Blrs3mET-8yq2-daLAicgtnkEk4vL_KE5KTAM/s1280/5458592413615518971.jpg) |
-| |  | | --- | | ЖК PROMETHEUS Помещение № 2 - 137,13 м2 | |
+![ЖК PROMETHEUS Помещение № 2 - 137,13 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjXQUOJKCDhzJx6lA4AaKfhinzJS99xeCfBmKKep5krcgoSGEOqP9mC6bBSe1gNvDYEjJmizFFllspHkmXseK9T0X-n2muuF_iFy6T3QSrxSs0kQEauz3V8kMf1BrPcCsDmpkG5g5SBURKazY_YVzhD5-Blrs3mET-8yq2-daLAicgtnkEk4vL_KE5KTAM/w640-h480-rw/5458592413615518971.jpg "ЖК PROMETHEUS Помещение № 2 - 137,13 м2")
 
 ### Помещение № 3 уже реализовано
 
-### Помещение № 3
+### Помещение № 3 
 
-### * Площадь - 96,18 м2 * 2 500 ₽/м2 * Электрическая мощность - 17,5 кВт * Мокрые точки - 4 шт. * Вход - 2 входа с внешней стороны * Расположение помещения - со стороны ул. Революции 1905 года. | | | --- | | ![ЖК PROMETHEUS Помещение № 3 - 96,18 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyi8h44IO-uyiMAhvXbh5aTb59SXU408sYzBniruvRvu_zjgrdDRp8BKf8pbZ3d4e6X8OrDNOoJV3DiMuw0qX4LgfEf8NG8hVU7563UwIEa2XHn-2zxjXMZHZePt1xluG3Bn8qCeatgDWZ-bA2kDzeg0zp3jYiRfPSEdduXxN7zKDZsNTYTTAE5Kec3Ps/s1632/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-8.jpg) | | ЖК PROMETHEUS Помещение № 3 - 96,18 м2 |
+###
+- Площадь - 96,18 м2
+- 2 500 ₽/м2
+- Электрическая мощность - 17,5 кВт
+- Мокрые точки - 4 шт.
+- Вход - 2 входа с внешней стороны
+- Расположение помещения - со стороны ул. Революции 1905 года.ЖК PROMETHEUS Помещение № 3 - 96,18 м2
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 3 - 96,18 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmBn50ip_gHrOsYbJsI5agTw4SxElMAG48Jin55tMeiwGr3ndmURbJVdno_IVESE1YnyTQOqDW07_sLm-Jipb8WcWOs2TVzTlRW6BG9NkPCE1qLGlkt0evpkJTep7aCdCzfiJ3dypBuwo90i4cPk9CtqsyTblfFY2qvt4tZCB4WCX99tWeTtPZHcW7JGo/s1280/5458592413615518981.jpg) |
-| ЖК PROMETHEUS Помещение № 3 - 96,18 м2 Помещение № 4 уже реализовано |
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxbIHb8IlbrvTwF3Jc7Ia3QsUrwpxNXIl0vjcUB6Ak6VsH95BetVLr74x9lH7pwstiGRsLizeBawKjT66BKI5Y2HRIagktvyFXlEb_QgKdO_V2pdAsEFJCAoMaLNt8Fii7wDF4&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-### Помещение № 4
+ЖК PROMETHEUS Помещение № 3 - 96,18 м2
 
-### * Площадь - 82,75 м2 * 2 500 ₽/м2 * Электрическая мощность - 15,3 кВт * Мокрые точки - 1 шт. * Вход - 2 входа с внешней стороны * Расположение помещения - со стороны ул. Революции 1905 года и ул. Средне-Московской.
+![ЖК PROMETHEUS Помещение № 3 - 96,18 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmBn50ip_gHrOsYbJsI5agTw4SxElMAG48Jin55tMeiwGr3ndmURbJVdno_IVESE1YnyTQOqDW07_sLm-Jipb8WcWOs2TVzTlRW6BG9NkPCE1qLGlkt0evpkJTep7aCdCzfiJ3dypBuwo90i4cPk9CtqsyTblfFY2qvt4tZCB4WCX99tWeTtPZHcW7JGo/w640-h480-rw/5458592413615518981.jpg "ЖК PROMETHEUS Помещение № 3 - 96,18 м2")
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 4 - 82,75 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeboHu8oHGJfB5QDKvsbY9hYSNzoXxYFNSmIwVMTvmRkXoJhv6murIETbbBv4MK0a3faLiKUb-x3CkTpv7gH6-1XfBqJ330e6VKtl-9kRAzHs8UR5F018TWPkOTibYZAYPdAIJudwJK9ubqpFxvNqbC66venIHHnMjFG5JKl6KirIe8DDxb1yoOwiciD8/s1740/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-9.jpg) |
-| ЖК PROMETHEUS Помещение № 4 - 82,75 м2 |
+### Помещение № 4 уже реализовано
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 4 - 82,75 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg8sBDZhmGH80qouQKNAMTTenQ89-cKzQ6K6LjIst3JRNqGEP_gCFIp_gHHvR8w9Zom7KRqELCZjyLMafLZgZlfpVJrVvyCc0tVVmYSgOm2ItpVp9pK4VIcgjwtgrfMrYGdZhjcxp3yl1nNGP0I_mVd-wcJL7GGjyA9cnTH1ct9mpJpg4KmfcOdZDt7F4/s1280/5458592413615518995.jpg) |
-| |  | | --- | | ЖК PROMETHEUS Помещение № 4 - 82,75 м2 | |
+### Помещение № 4 
 
-  
+###
+- Площадь - 82,75 м2
+- 2 500 ₽/м2
+- Электрическая мощность - 15,3 кВт
+- Мокрые точки - 1 шт.
+- Вход - 2 входа с внешней стороны
+- Расположение помещения - со стороны ул. Революции 1905 года и ул. Средне-Московской.
 
-|  |
-| --- |
-| Помещение № 5 уже реализовано |
+ЖК PROMETHEUS Помещение № 4 - 82,75 м2
 
-### Помещение № 5
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxkBAhliVej5UKDYD6ghOYkXWwufH5MteA-ij5WMhge7bjD5I3D_KGtX5k7MekjuuRgnHxcnOhFV8BJy525AW_jVOwmJFz1jecD0iEZTHgvIp9InVWk6zWJFaN6_Des7fYk5_k&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-### * Площадь - 116,76 м2 * 2 500 ₽/м2 * Электрическая мощность - 21,5 кВт * Мокрые точки - 2 шт. * Вход - 2 входа с внешней стороны * Расположение помещения - со стороны ул. Средне-Московской.
+ЖК PROMETHEUS Помещение № 4 - 82,75 м2
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 5 - 116,76 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4XYNhjCUo3Zq8J24rfttLaE6UNxxbAnfwbGVVJ7Es4PJMd_IP1h0autAKPbtrS9AQlaZv7MEm6tmIv0CjhmZgNIQ37d64DJlhGlBG2Al9xNgjknG36HdqilDDUDCPTRgXSo72kWUOomvHkq9uMQ5V3WF4Z4vdNrJV_b24XSNYouWo6M9nWC6toshya-o/s1784/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-10.jpg) |
-| ЖК PROMETHEUS Помещение № 5 - 116,76 м2 |
+![ЖК PROMETHEUS Помещение № 4 - 82,75 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg8sBDZhmGH80qouQKNAMTTenQ89-cKzQ6K6LjIst3JRNqGEP_gCFIp_gHHvR8w9Zom7KRqELCZjyLMafLZgZlfpVJrVvyCc0tVVmYSgOm2ItpVp9pK4VIcgjwtgrfMrYGdZhjcxp3yl1nNGP0I_mVd-wcJL7GGjyA9cnTH1ct9mpJpg4KmfcOdZDt7F4/w480-h640-rw/5458592413615518995.jpg "ЖК PROMETHEUS Помещение № 4 - 82,75 м2")
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 5 - 116,76 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-1j4qYskiowbHrKI_5DzZ5QzTBXLxcw7dun3OVjy401mbjuEg87LbVaR-CQEAY2Wgt_dCct5nvN1DMyjpBjQ-ZRgCGcCBKgjMOu7bO2nKJBO2Xy_IZYTFLoiAimcU_WkZ51ks29fiipkU-yg_GVHvQntg5E7EP2pd8XHgY1fpDmhDexD73gE63-_Vmcw/s1280/5458592413615518950.jpg) |
-| ЖК PROMETHEUS Помещение № 5 - 116,76 м2    |  | | --- | | Помещение № 6 уже реализовано | |
+### Помещение № 5 уже реализовано
 
-### Помещение № 6
+### Помещение № 5 
 
-### * Площадь - 21,29 м2 * 2 500 ₽/м2 * Электрическая мощность - 3,4 кВт * Мокрые точки - 1 шт. * Вход - 1 вход с внешней стороны * Расположение помещения - со стороны ул. Средне-Московской.
+###
+- Площадь - 116,76 м2
+- 2 500 ₽/м2
+- Электрическая мощность - 21,5 кВт
+- Мокрые точки - 2 шт.
+- Вход - 2 входа с внешней стороны
+- Расположение помещения - со стороны ул. Средне-Московской.
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение №  - 21,29 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi09MniO7_QFc9Lj7iNoT7NlX6ngoGLtpgzlFFMbmrg1vuA2DPQ_PikgJZhJd3PADF0P3ELmjF4QMzyjXoRRL-AT90Wn9vjDTn9hTQP6TezrvYw2NsZ2b9XIVo4sijeKncpRHb-e5xlgXaEkwILbaX_yoJYk6FKvt8AXD645H0tNrlTb3icB-X7aAmb2qI/s2160/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-11.jpg) |
-| ЖК PROMETHEUS Помещение №  - 21,29 м2 |
+ЖК PROMETHEUS Помещение № 5 - 116,76 м2
 
-  
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyfncSyO6PRcDbya7DF7xHv862x4jOPXg46WLNq2b-BAVfECGNXgswJW3M0vdyTAZXmM5WJvJbj-6Jq_Tx83hHGywKsN3yP_kTZEFZLguZMIbGDANr0cuDfNidXht1ZY1HmAgQv&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение №  - 21,29 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZtYwOR8PWKxALFnAxVQwIa6f8xbHuc6s65eE6a83WvpXLpQ0GC8IsioGKPIQN4-Jj1qo7WUBKUDOqYqOOJDIZ0SX_3iOtVda9yTbZ_eNd78uJw7FKYqNVcniBnDfgRt-oz11DViZJPfNctCxpnZSdwg5eFqm3x1Aw7I35yUR6XJD2RT7mwAXA33Rlf_o/s800/5458592413615518975.jpg) |
-| ЖК PROMETHEUS Помещение №  - 21,29 м2    |  | | --- | | Помещение № 7 уже реализовано | |
+ЖК PROMETHEUS Помещение № 5 - 116,76 м2
 
-### Помещение № 7
+![ЖК PROMETHEUS Помещение № 5 - 116,76 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-1j4qYskiowbHrKI_5DzZ5QzTBXLxcw7dun3OVjy401mbjuEg87LbVaR-CQEAY2Wgt_dCct5nvN1DMyjpBjQ-ZRgCGcCBKgjMOu7bO2nKJBO2Xy_IZYTFLoiAimcU_WkZ51ks29fiipkU-yg_GVHvQntg5E7EP2pd8XHgY1fpDmhDexD73gE63-_Vmcw/w640-h480-rw/5458592413615518950.jpg "ЖК PROMETHEUS Помещение № 5 - 116,76 м2")
 
-### * Площадь - 96,51 м2 * 2 500 ₽/м2 * Электрическая мощность - 17,5 кВт * Мокрые точки - 2 шт. * Вход - 1 вход с внешней стороны * Расположение помещения - со стороны ул. Средне-Московской.
+### Помещение № 6 уже реализовано
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 7 - 96,51 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyH5V3vUiDUzmCva2N2kYCLWzAbLQuWxk4jN06arEZlTNSJzGkfp6gY_NgpwJ61Emnsk1fcqzowq5lAq1tJ4u-rDd0-bC2-qiS3_HWj9TEbphWBBaMOopTrDtgMZof4GOH_Y5vRWknJ8X0lDxYFDuI2MoIcHUL9pzhM1bofAABdMxespulCWL16ghQVk4/s2020/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-12.jpg) |
-| ЖК PROMETHEUS Помещение № 7 - 96,51 м2 |
+### Помещение № 6 
 
-|  |
-| --- |
-| ![ЖК PROMETHEUS Помещение № 7 - 96,51 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG3XAh8anMsfzTQh3J9Tki5b8yfGKGHcfODs0vsULndWYzjbIiZu_wbTBEn5eYvvXUMgLJjTzI2LlFuZ6L54WcmDBK7Drv0GZgAEfazccWYqd3DjU0T0PJTLNyBrdHKdif7_1dpHh05DDhMg99O2Mi4rb454u-CmwdqU-aS2_gfK2flMTeadIlq9tWr4k/s1280/5458592413615518974.jpg) |
-| |  | | --- | | ЖК PROMETHEUS Помещение № 7 - 96,51 м2 | |
+###
+- Площадь - 21,29 м2
+- 2 500 ₽/м2
+- Электрическая мощность - 3,4 кВт
+- Мокрые точки - 1 шт.
+- Вход - 1 вход с внешней стороны
+- Расположение помещения - со стороны ул. Средне-Московской.
 
+ЖК PROMETHEUS Помещение №  - 21,29 м2
+
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dylAPDhhaJWsFwh6RuTC4cvAWbYsA884kkCV3NujHvaDpNeoluqolSV6chz4jXv3Zq5fK1huwQUv1UHsYoSHHkAIGhEgqAm2-JbvDSPAmoGNfLAZe4KN4kiD_KHNK8sGU2PSmM&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+
+ЖК PROMETHEUS Помещение №  - 21,29 м2
+
+![ЖК PROMETHEUS Помещение №  - 21,29 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZtYwOR8PWKxALFnAxVQwIa6f8xbHuc6s65eE6a83WvpXLpQ0GC8IsioGKPIQN4-Jj1qo7WUBKUDOqYqOOJDIZ0SX_3iOtVda9yTbZ_eNd78uJw7FKYqNVcniBnDfgRt-oz11DViZJPfNctCxpnZSdwg5eFqm3x1Aw7I35yUR6XJD2RT7mwAXA33Rlf_o/w640-h480-rw/5458592413615518975.jpg "ЖК PROMETHEUS Помещение №  - 21,29 м2")
+
+### Помещение № 7 уже реализовано
+
+### Помещение № 7 
+
+###
+- Площадь - 96,51 м2
+- 2 500 ₽/м2
+- Электрическая мощность - 17,5 кВт
+- Мокрые точки - 2 шт.
+- Вход - 1 вход с внешней стороны
+- Расположение помещения - со стороны ул. Средне-Московской.
+
+ЖК PROMETHEUS Помещение № 7 - 96,51 м2
+
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dz3r_47khccq2woa1KSUgaMxzXdEIwRp8DK4GisS3pW2tOJX5iYTJyRqOj0Kq5HS3WHu7bAJH0d0YD8jv7VeKsK1KbHDimAkkpU_G-vwFnrg0JZ_JMkTkbEd5x4dAGYwaG4IMtR&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+
+ЖК PROMETHEUS Помещение № 7 - 96,51 м2
 Вам понравились эти помещения? **[Напишите или позвоните](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)!**
 
+![ЖК PROMETHEUS Помещение № 7 - 96,51 м2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhG3XAh8anMsfzTQh3J9Tki5b8yfGKGHcfODs0vsULndWYzjbIiZu_wbTBEn5eYvvXUMgLJjTzI2LlFuZ6L54WcmDBK7Drv0GZgAEfazccWYqd3DjU0T0PJTLNyBrdHKdif7_1dpHh05DDhMg99O2Mi4rb454u-CmwdqU-aS2_gfK2flMTeadIlq9tWr4k/w640-h480-rw/5458592413615518974.jpg "ЖК PROMETHEUS Помещение № 7 - 96,51 м2")
+
 #### Контакты для связи:
 
-* Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
+- Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
+ЖК бизнес-класса PROMETHEUS (Воронеж)
 
-* Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
-
-|  |
-| --- |
-| ![ЖК бизнес-класса PROMETHEUS (Воронеж)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDEdHzLG75_TkOOeJUPpPDEPdcDoHDanevWxF0cSFwyMtmHEXJ0gT_EGcGwxTP1vRn-H_HQBn-Ykga6roTFsZJDB4uaIzPVWPxTTIM6u-wAqcKcFiB4PJQSrKrhfDFRB1bniNXxwBOEVOu36Vaeo_9udJBM6RR3BbhKUC486yfNME9aPGA81wHoka1-Jk/s1280/5458592413615518929.jpg) |
-| ЖК бизнес-класса PROMETHEUS (Воронеж) |
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxOM83vsNoccJwxzsQ_UMp0_LLgvSFf0aBGZGSWK9gYJQ9ZV1QBLjv7r7mawopHKA1a0oNmpWIyBm7yzQv6Arm60EEEAQfwNV-gn_R4rEzofJ4MJ0v41_IiSvTEcuH585c8dQM_&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 Вид со второго этажа ЖК бизнес-класса PROMETHEUS (Воронеж)
-
 Больше на [ФотоGoogle](https://photos.app.goo.gl/AQaexBS7SX55b5y76)
-
 Посмотрите другие объекты по этой [**ССЫЛКЕ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
+
+![ЖК бизнес-класса PROMETHEUS (Воронеж)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjDEdHzLG75_TkOOeJUPpPDEPdcDoHDanevWxF0cSFwyMtmHEXJ0gT_EGcGwxTP1vRn-H_HQBn-Ykga6roTFsZJDB4uaIzPVWPxTTIM6u-wAqcKcFiB4PJQSrKrhfDFRB1bniNXxwBOEVOu36Vaeo_9udJBM6RR3BbhKUC486yfNME9aPGA81wHoka1-Jk/w640-h480-rw/5458592413615518929.jpg "ЖК бизнес-класса PROMETHEUS (Воронеж)")
 
 #### Контакты для связи:
 
-* Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
+- Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)
 
-* Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
+Поделиться
 
-* [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)
+-
+
+Получить ссылку
+
+-
+
+Facebook
+
+-
+
+X
+
+-
+
+Pinterest
+
+-
+
+Электронная почта
+
+-
+
+Другие приложения
+
+### Ярлыки
+
+Не сдается, уже найден арендатор Посмотреть другие коммерческие объекты Вы можете по этой ССЫЛКЕ Расположение : Исторический центр города, первая линия Россия, г. Воронеж, ул. Студенческая, 32 Технические характеристики Общая площадь : 68 м² Этаж : 1/4, 3 комнаты Вход : прямой с улицы Высота потолков:  3,4 м (до навесного потолка Армстронг - 3,1 м), деревянные перекрытия Отделка: Пол : керамическая плитка Стены : кирпичные (толщина 1 м), косметический ремонт Перегородки : из гипсокартона (возможность перепланировки) Коммуникации и оснащение Окна : пластиковые с рольставнями (на улицу и во двор) Входная группа:  стекло/пластик, рольставни Инженерные системы: Централизованное отопление (чугунные радиаторы) Холодное водоснабжение (пластиковые трубы) Электричество: 15 кВт Установлены счетчики воды и электричества Санузел : унитаз, раковина Безопасность : сигнализация Инфраструктура района (в ближайших кварталах) Транспортная доступность: Остановка общественного транспорта Бизнес-центр с па...
+
+[](https://can.blagorussia.ru/2025/05/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha.html)
+
+О проекте Добро пожаловать на платформу САН (Сообщество агентов недвижимости)  — специализированный интерактивный ресурс, созданный для эффективного взаимодействия профессионалов рынка и прямых клиентов.  Наша цель — объединить независимых агентов, риелторские компании и частных брокеров в рамках единой, прозрачной и технологичной экосистемы. Мы предоставляем риелторам готовые цифровые инструменты для работы, включая полностью бесплатную возможность размещения и продвижения вашей базы объектов  без скрытых комиссий и ограничений. Какую выгоду получают посетители сайта (клиенты) Платформа САН создана не только для агентов, но и для людей, которые ищут недвижимость для покупки, продажи или аренды. Для обычных посетителей наш ресурс предлагает уникальные преимущества: Только актуальные и проверенные объекты.  Благодаря обязательной модерации внутри сообщества, вы защищены от «несуществующих» объявлений, заниженных цен и скрытых дубликатов, которыми перегружены крупные коммерческие агр...
+
+[](https://can.blagorussia.ru/2025/04/o-proekte-san-soobshchestvo-agentov-nedvizhimosti.html)
+
+Коммерческая недвижимость Воронежской области Предложения от агента по недвижимости Боброва Александра Валентиновича Актуальные запросы на аренду и покупку коммерческой недвижимости в Воронеже и Воронежской области: Текущие запросы клиентов Заявка № 1: Торговые площади Тип заявки: аренда/покупка Площадь: 20-100 м² Расположение: 1 этаж Требования: возможность размещения вывески, санузел Дополнительно: предпочтительно соседство с продуктовыми магазинами при аренде в ТЦ Заявка № 2: Длительная аренда торговых площадей Тип заявки: аренда (от 5 лет) Площадь: 40-80 м² Расположение: 1 этажи ЖК и ТЦ, прикассовые зоны Требования: витрины, отдельный вход, место для вывески Коммуникации: мокрые точки, отопление, электричество >15 кВт Заявка №3: Покупка/аренда помещений Тип заявки: покупка/аренда (от 5 лет) Площадь: 80-200 м² Планировка: зальная Требования: санузел, водоснабжение, электричество >10 кВт, вход с фасада Дополнительно: возможность размещения вывески по муниципальным нормам Заявка...
+
+[](https://can.blagorussia.ru/2025/05/predlozheniya-po-dolgosrochnoj-kommercheskoj-arende-pokupke-nezhilyh-pomeshchenij-i-zemelnyh-uchastkov-v-voronezhskoj-oblasti-ot-agenta-po-nedvizhimosti-bobrova-aleksandra-valentinovicha.html)
+
+Уникальное инвестиционное предложение в самом сердце Северного района города Воронежа. Представляем Вашему вниманию коммерческое помещение в одном из самых перспективных и густонаселенных жилых комплексов города — ЖК «Чайка». Это идеальная возможность для развития вашего бизнеса благодаря высокой концентрации потенциальных клиентов и удобному расположению. Объект: Жилой комплекс:  «Чайка» Район : Северный Адрес : Воронеж, ул. Хользунова, 99б Тип дома:  Многоэтажный многоквартирный жилой дом, 20 этажей, 476 квартир. Площадь квартир:  17,842.4 м2 Ввод в эксплуатацию:  10.10.2018 Характеристики помещения Расположение:  1-й этаж, 1-я и 2-я секции. Общая площадь: 1503,9 м2. Состояние: Без отделки. Планировка: Свободная (возможен демонтаж/монтаж перегородок). Высота потолков:  2.8 м. Остекление:  Витражное, 15 окон, выходящих во двор. На окнах установлены рольставни. Дверные проемы:  1 вход для разгрузки, 2 металлические двери и 15 стеклянных дверей в проемах витражных окон, все выходят во д...
+
+[](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html)
+
+Информационные государственные ресурсы для риэлтора На этой странице представлены ссылки на открытые государственные источники информации об объектах и субъектах (юридических и физических лицах), участвующих в сделках купли-продажи и аренды объектов недвижимости в России. ФИАС  - Государственный адресный реестр (ГАР) – государственный информационный ресурс, содержащий сведения об адресах Национальная система пространственных данных (НСПД)  - Используя платформу, вы можете: Получить сводную информацию о земельных участках по заданному кадастровому номеру или по выбранным границам. Воспользоваться картографическими слоями НСПД. Получать информацию по изменениям объектов недвижимости. Подготовить схему строительства для ИЖС. Найти земельные участки, подходящие для развития туризма ФГИС ЕГРН  - Электронные услуги и сервисы Росреестра ФССП  - Банк данных исполнительных производств Федресурс  - Единый федеральный реестр юридически значимых сведений о фактах деятельности юр...
+
+[](https://can.blagorussia.ru/2025/04/informacionnye-gosudarstvennye-resursy-dlya-rieltora.html)
+
+Рост и развитие Прежде всего, важно осознать, что «САН»  — это не агентство недвижимости или агрегатор объявлений, а именно  сообщество агентов , объединённых общей целью. Это платформа, где каждый участник может размещать свои объявления бесплатно, и при этом проект остаётся некоммерческим. Ключевой особенностью  «САН» является его некоммерческий статус . Основатель проекта  не получает прибыли от его деятельности, что исключает возможность взимания платы за размещение объявлений. Это принципиальное отличие от коммерческих площадок, где основной целью является извлечение прибыли. Несмотря на отсутствие платы за размещение объявлений, проект успешно функционирует благодаря продуманной бизнес-модели . Все затраты на поддержание работы сайта компенсируются за счёт размещения рекламы сторонних организаций. Это классическая модель монетизации, которая широко применяется в интернете. Показательным примером успешной реализации такой модели являются многие продукты компании Google , котор...
+
+[](https://can.blagorussia.ru/2025/08/pochemu-na-sajte-san-vse-obyavleniya-besplatnye.html)
+
+САН - сообщество агентов недвижимости Чтобы стать участником проекта «САН» агенту по недвижимости, необходимо заполнить заявление на этой странице. Обязательным условием является наличие аккаунта Google, который есть у всех пользователей смартфонов на Android . После получения заявления администратор проекта отправляет приглашение на закрытый обучающий сайт, где агенты учатся правильно размещать объявления в соответствии с правилами поисковых систем ( Google  и Яндекс ).  Обучение проходит дистанционно и индивидуально по указанным в заявлении каналам связи. Возможна организация выездного группового обучения для агентств недвижимости от 5 человек в Воронеже.  Продолжительность обучения составляет от 2 до 8 часов в зависимости от опыта агента в работе с интернет-программами. После завершения обучения администратор проекта предоставляет доступ к открытому сайту «САН» , где агенты самостоятельно размещают объявления и свою страницу с данными.  И конечно важно соблюдать Кодекс...
+
+[](https://can.blagorussia.ru/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html)
+
+Профессиональное размещение Вашего объекта коммерческой недвижимости Я, Александр Бобров  - Ваш персональный агент по недвижимости, помогу максимально эффективно реализовать Ваш коммерческий объект. Заполнив эту форму, Вы предоставите всю необходимую информацию для: Создания профессионального объявления на отдельной интернет-странице Оптимизации контента под поисковые системы ( Google  и Яндекс ) Продвижения в социальных сетях и мессенджерах Размещения на всех площадках проекта САН Использования в моих личных каналах продвижения Почему важно предоставить полную информацию? Комплексный подход  к описанию объекта позволяет: Привлечь максимальное количество заинтересованных покупателей/арендаторов Выделить Ваше предложение среди конкурентов Ускорить процесс продажи или сдачи в аренду Получить более выгодные условия сделки Что поможет быстрее реализовать объект? Подробные технические характеристики помещения Качественные фотографии всех помещений Информация о преимуществах локации Точные п...
+
+[](https://can.blagorussia.ru/2025/05/anketa-obekta-dlya-poiska-arendatora-ili-pokupatelya-kommercheskoj-nedvizhimosti-i-soglasie-na-obrabotku-dannyh-agentu-po-nedvizhimosti-bobrovu-aleksandru-valentinovichu.html)
+
+Интернет программы для правильного оформления интернет страниц риэлтора На этой странице собраны бесплатные интернет программы для правильного оформления интернет страниц по правилам поисковых систем , социальных сетей и мессенджеров для использования агентами по недвижимости. Программы для создания текстового контента Алиса  - AI-ассистент Алиса в чате для решения любых задач. Gemini  - ИИ-помощник от Google. Он помогает писать, планировать, искать идеи и не только (в России недоступен без VPN) Главред  - Подходит для рекламы, новостей, статей, сайтов, инструкций, писем и коммерческих предложений. Не подходит для стихов, художественной прозы и СМС-диет. LanguageTool  – это многоязычная программа проверки орфографии, стилистики и грамматики, которая помогает исправлять и перефразировать тексты. Текст.ру  - Сервис проверки текста на уникальность и нейросети для работы с контентом. Яндекс Спеллер  - помогает находить и исправлять орфографические ошибки в русском, украи...
+
+[](https://can.blagorussia.ru/2025/05/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora.html)
+
+Контакты САН - сообщество агентов недвижимости Добро пожаловать на страницу контактов САН - сообщество агентов недвижимости! Здесь Вы найдёте всю необходимую информацию, чтобы связаться с нами и узнать больше о нашей деятельности. Мы рады ответить на все Ваши вопросы и готовы сотрудничать с новыми участниками. Пожалуйста, ознакомьтесь с информацией ниже, чтобы выбрать наиболее удобный для Вас способ связи. Телефон: +7 (920) 469-69-50 Email:  BlagoRussia@yandex.ru Социальные сети: Сайт:   can.blagorussia.ru ВКонтакте:   vk.com/sanbirzha Группа Google :  groups.google.com/g/canblagorussiaru Дзен :  dzen.ru/can.blagorussia.ru Одноклассники :  ok.ru/group/70000037901614 Pinterest :  www.pinterest.com/Sanbirzha Whatsapp :  chat.whatsapp.com/JJomBTkHPThFHpMBOhgThV Telegram-канал: t.me/sanblago Telegram-группа :  t.me/canblago Яндекс Бизнес: san-soobschestvo-agentov.clients.site Форма обратной связи: откройте нажав на ССЫЛКУ Мы всегда рады услышать ...
+
+[](https://can.blagorussia.ru/2025/05/kontakty-san-soobshchestvo-agentov-nedvizhimosti.html)
