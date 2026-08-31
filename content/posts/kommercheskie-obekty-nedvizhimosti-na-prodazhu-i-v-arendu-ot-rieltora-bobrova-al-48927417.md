@@ -5,9 +5,13 @@ aliases:
 url: "/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha/"
 date: 2025-10-01T00:00:00Z
 ---
+
 На этой странице предлагаются к аренде и продаже коммерческие объекты от агента по недвижимости [Боброва Александра Валентиновича](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).
+
 Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
+
 ### Воронежская область (г. Воронеж)
+
 | № п/п | Фото | Описание объекта | Площадь м2 | Цена аренды за м2 в месяц, руб. | Цена продажи за м2, руб. | Цена продажи всего, руб. |
 | --- | --- | --- | --- | --- | --- | --- |
 | 1 | ![Коммерческое помещение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL8RSOe1YDAAfoQv7k2i4mN9zzGMEtfYU2s61G21ZTGrPXRyuJvIu58oz9j1__h9vx1_x4_BAowzjffOv9mIAjngMtpECukizK-kgQvSjfRsjHaAoeHokISKOXgWIRZZwueGwTGaIAwkkgDoaqPB1DW19YRq3Be0OLrffiHxedH3AwFoG81UYC9_ovEuw/s1280/e149aac5-c64d-440b-a2a3-843ae43019bb.jpeg)  \* | [1 этаж Нежилое помещение Без отделки  ЖК "Чайка" - ул. Хользунова 99б](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html) | 1503,9 | 350 | 43 887 | 66 000 000 |
@@ -63,7 +67,9 @@ date: 2025-10-01T00:00:00Z
 | 51 | ![Коммерческое помещение](https://blogger.googleusercontent.com/img/a/AVvXsEhf8vdhTgPo-v6QNyk-dpa-TJ4z9N4G_0s9k5WJv2SspdSoYoKeblxln-JylAPeW4fdgsjgdem2GWvjio336n3msK4UP8HkxtaAUseb9QydtPzg2-JR1Ro5A4j791KYh25pSNDs_Xl7bFDYhrFXCWbK9_AEUApNeTmRDViIG3leeYLlm3F_F8mgz6nSxBAq)  \* | [1 этаж Нежилое помещение Черновая отделка ЖК бизнес-класса PROMETHEUS - ул. Средне-Московская, 60](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html) | 140,24 | 2 000 | 300 000 | 39 267 200 |
 | 52 | ![Коммерческое помещение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw_TY273Ikp-EzUKGDuKBi9VMOgZSS5zFdL0bH-4sWLUCas7vPVPQ00WBcFw9Qn2ec2QhYpj65VYIYyzHz1YhBTHoaek7N6R-WlA_qJVz4SNm8TRRT78aXCkAjgbx9LPnep20HygY-uwRMHd5kYtGKhf1LGsuEZJ801hFFA9J-Ve-615FKl7Xbv8V33fo/s1898/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-7.jpg)  \* | [1 этаж Нежилое помещение Черновая отделка ЖК бизнес-класса PROMETHEUS - ул. Средне-Московская, 60](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html) | 137,13 | 2 000 | 300 000 | 41 139 000 |
 | 53 | ![Коммерческое помещение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgnxnU_3sy18ITvThgNKTtnEn1L5l30uX8m2oLZAIB2Lk8Q-6Fwisib2lfOnbKmj8foKsbvtnNnlfhZLSk9vkv_cqfj4T6mNkOFjXdb6fw3dFu4f08QO_ObBfV0vdZ1073Ljk9IHBiECCOWR04O5wqOtGwSbArKwG2u1wg6QuJ0aRfXY5o6Lsgy_ImQHQ/s3360/%D0%9E%D0%B1%D1%8A%D0%B5%D0%B4%D0%B8%D0%BD%D0%BA%D0%BD%D0%BD%D0%BE%D0%B5%20%D0%BF%D0%BE%D0%BC%D0%B5%D1%89%D0%B5%D0%BD%D0%B8%D0%B5.jpg)  \* | [1 этаж Нежилое помещение Черновая отделка Объединенное помещение ЖК бизнес-класса PROMETHEUS - ул. Средне-Московская, 60](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html) | 278 | 2 000 | 300 000 | 80 406 200 |
+
 ### Воронежская область
+
 | № п/п | Фото | Описание объекта | Площадь м2 | Цена аренды за м2 в месяц, руб. | Цена продажи за м2, руб. | Цена продажи всего, руб. |
 | --- | --- | --- | --- | --- | --- | --- |
 | 1 |  | 1 этаж Нежилое помещение Хохольский район пос. ОПТ ВНИИК ул. Чаянова 1  (возможна перепланировка) | 273 | 1 500 | - | - |
@@ -73,8 +79,15 @@ date: 2025-10-01T00:00:00Z
 | 5 | ![Нежилое помещение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s3128/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg) \* | 1 этаж Нежилое помещение № 5 Семилукский р-он пос. Латная ул. Ленина 97а | 76,26 | 1500 | - | - |
 | 6 | ![Нежилое помещение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s3128/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg) \* | 1 этаж Нежилое помещение № 4 Семилукский р-он пос. Латная ул. Ленина 97а | 67,84 | 1500 | - | - |
 | 7 | ![Нежилое помещение](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s3128/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg) \* | 1 этаж Нежилое помещение № 3 Семилукский р-он пос. Латная ул. Ленина 97а | 68,49 | 1500 | - | - |
+
+  
+
 Дополнительные данные по этим объектам и другим (не публикуемых в открытом доступе) предоставляются:
+
 \* -  после верификации клиента;
+
 \*\* - после заключения [Соглашения о сотрудничестве](https://can.blagorussia.ru/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html);
+
 \*\*\* - после заключения агентского договора.
+
 Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
