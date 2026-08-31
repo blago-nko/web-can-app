@@ -1,6 +1,6 @@
 ---
 title: "Поиск квартиры со 100%-ной отделкой для предоставления инвалидам‑колясочникам в г. Воронеже"
-description: "### | | | --- | | [Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам.](https://blogger.googleusercont"
+
 aliases:
   - "/2026/03/poisk-kvartiry-so-100-noj-otdelkoj-dlya-predostavleniya-invalidam-kolyasochnikam-v-g-voronezhe.html"
 url: "/poisk-kvartiry-so-100-noj-otdelkoj-dlya-predostavleniya-invalidam-kolyasochnikam-v-g-voronezhe/"

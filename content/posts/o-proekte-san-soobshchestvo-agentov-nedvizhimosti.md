@@ -1,6 +1,6 @@
 ---
 title: "О проекте САН - сообщество агентов недвижимости"
-description: "| | | --- | | [О проекте](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6oLb7YwNjttoMv-J3xB9ogTJtx6_r1BU9tQT3MnEqgvylqntUyhDLrADBiXhsOXmVYEBMw_2ov"
+
 aliases:
   - "/2025/04/o-proekte-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/o-proekte-san-soobshchestvo-agentov-nedvizhimosti/"

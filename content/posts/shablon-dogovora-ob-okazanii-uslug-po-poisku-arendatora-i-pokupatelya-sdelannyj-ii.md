@@ -1,6 +1,6 @@
 ---
 title: "Шаблон договора об оказании услуг по поиску арендатора и покупателя сделанный ИИ"
-description: "| | | --- | | [Летний дворец Петра I](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjmHg_1vek4Zyk7Fc3rJ5QGjFPTtK3pWhRJwZ_rkaTUFxj9GgcTkvELds6zBK6rJ"
+
 aliases:
   - "/2025/07/shablon-dogovora-ob-okazanii-uslug-po-poisku-arendatora-i-pokupatelya-sdelannyj-ii.html"
 url: "/shablon-dogovora-ob-okazanii-uslug-po-poisku-arendatora-i-pokupatelya-sdelannyj-ii/"

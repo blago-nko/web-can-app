@@ -1,6 +1,6 @@
 ---
 title: "Интернет программы для правильного оформления интернет страниц риэлтора"
-description: "| | | --- | | [Интернет программы для правильного оформления интернет страниц риэлтора](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjV_BkCNV28-Sb"
+
 aliases:
   - "/2025/05/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora.html"
 url: "/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora/"

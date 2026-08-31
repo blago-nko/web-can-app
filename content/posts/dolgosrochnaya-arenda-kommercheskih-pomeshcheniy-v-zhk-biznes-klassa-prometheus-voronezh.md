@@ -1,6 +1,6 @@
 ---
 title: "Долгосрочная аренда коммерческих помещений в ЖК бизнес-класса PROMETHEUS (Воронеж)"
-description: "| | | --- | | [ЖК бизнес-класса PROMETHEUS (Воронеж)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5ca6mpUyKByEob6BiwxkesVfLdMBbgmjh37CUyJsQKIuX_"
+
 aliases:
   - "/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html"
 url: "/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh/"

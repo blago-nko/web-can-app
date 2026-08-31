@@ -1,6 +1,6 @@
 ---
 title: "Полный словарь риелтора: 250+ терминов рынка недвижимости"
-description: "| | | --- | | [Полный словарь риелтора: 250+ терминов рынка недвижимости](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEighTiggHEJJz7h7wLBiZjc2zNw9"
+
 aliases:
   - "/2025/09/polnyj-slovar-rieltora-250-terminov-rynka-nedvizhimosti.html"
 url: "/polnyj-slovar-rieltora-250-terminov-rynka-nedvizhimosti/"

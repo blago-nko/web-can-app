@@ -1,6 +1,6 @@
 ---
 title: "Кодекс профессиональной этики участников САН - Сообщество агентов недвижимости"
-description: "| | | --- | | [Кодекс профессиональной этики](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghn0mAXxcGThi66yNt-801NS6rLGEkhY-M6X7SJaHS88Vk1NjxYexGC"
+
 aliases:
   - "/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti/"
