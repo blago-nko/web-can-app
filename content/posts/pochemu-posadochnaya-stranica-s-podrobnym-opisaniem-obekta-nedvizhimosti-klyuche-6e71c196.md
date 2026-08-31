@@ -1,6 +1,5 @@
 ---
 title: "Почему посадочная страница с подробным описанием объекта недвижимости — ключевой инструмент в работе агента?"
-
 aliases:
   - "/2025/08/pochemu-posadochnaya-stranica-s-podrobnym-opisaniem-obekta-nedvizhimosti-klyuchevoj-instrument-v-rabote-agenta.html"
 url: "/pochemu-posadochnaya-stranica-s-podrobnym-opisaniem-obekta-nedvizhimosti-klyuchevoj-instrument-v-rabote-agenta/"

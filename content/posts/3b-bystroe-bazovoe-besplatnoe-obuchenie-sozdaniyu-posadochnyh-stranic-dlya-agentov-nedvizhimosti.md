@@ -1,6 +1,5 @@
 ---
 title: "3Б - Быстрое базовое бесплатное обучение созданию посадочных страниц для агентов недвижимости"
-
 aliases:
   - "/2025/08/3b-bystroe-bazovoe-besplatnoe-obuchenie-sozdaniyu-posadochnyh-stranic-dlya-agentov-nedvizhimosti.html"
 url: "/3b-bystroe-bazovoe-besplatnoe-obuchenie-sozdaniyu-posadochnyh-stranic-dlya-agentov-nedvizhimosti/"

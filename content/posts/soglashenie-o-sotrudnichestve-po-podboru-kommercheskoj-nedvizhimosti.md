@@ -1,6 +1,5 @@
 ---
 title: "Соглашение о сотрудничестве по подбору коммерческой недвижимости"
-description: "### СОГЛАШЕНИЕ О СОТРУДНИЧЕСТВЕ ПО ПОДБОРУ КОММЕРЧЕСКОЙ НЕДВИЖИМОСТИ г. Воронеж «*[День]*» *[Месяц]* 20*[Год]* г. [Некоммерческое партнерство «Общественное благ"
 aliases:
   - "/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html"
 url: "/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti/"

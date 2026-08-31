@@ -1,6 +1,5 @@
 ---
 title: "Коммерческие объекты недвижимости на продажу и в аренду от риелтора Боброва Александра Валентиновича"
-description: "На этой странице предлагаются к аренде и продаже коммерческие объекты от агента по недвижимости [Боброва Александра Валентиновича](https://can.blagorussia.ru/20"
 aliases:
   - "/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html"
 url: "/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha/"

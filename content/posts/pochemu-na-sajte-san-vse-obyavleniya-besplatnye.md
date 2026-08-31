@@ -1,6 +1,5 @@
 ---
 title: "Почему на сайте САН все объявления бесплатные?"
-
 aliases:
   - "/2025/08/pochemu-na-sajte-san-vse-obyavleniya-besplatnye.html"
 url: "/pochemu-na-sajte-san-vse-obyavleniya-besplatnye/"

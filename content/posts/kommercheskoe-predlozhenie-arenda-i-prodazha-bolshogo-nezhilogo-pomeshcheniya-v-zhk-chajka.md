@@ -1,6 +1,5 @@
 ---
 title: "Коммерческое предложение: Аренда и продажа большого нежилого помещения в ЖК «Чайка»"
-description: "Уникальное инвестиционное предложение в самом сердце Северного района города Воронежа. Представляем Вашему вниманию коммерческое помещение в одном из самых перс"
 aliases:
   - "/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html"
 url: "/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka/"
