@@ -1,6 +1,6 @@
 ---
 title: "Агент по недвижимости Бобров Александр Валентинович"
-description: "| | | --- | | [Бобров Александр Валентинович - независимый агент по недвижимости.](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigosydJKOsCNWlxnUq"
+
 aliases:
   - "/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html"
 url: "/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich/"

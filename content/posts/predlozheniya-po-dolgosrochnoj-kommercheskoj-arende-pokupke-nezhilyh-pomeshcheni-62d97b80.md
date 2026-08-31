@@ -1,6 +1,6 @@
 ---
 title: "Предложения по долгосрочной коммерческой аренде, покупке нежилых помещений и земельных участков в Воронежской области от агента по недвижимости Боброва Александра Валентиновича"
-description: "| | | --- | | [Коммерческая недвижимость Воронежской области](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2nIrfb6aR5f4BDiqfFKhmOI8gVppSjjBOvBQet"
+
 aliases:
   - "/2025/05/predlozheniya-po-dolgosrochnoj-kommercheskoj-arende-pokupke-nezhilyh-pomeshchenij-i-zemelnyh-uchastkov-v-voronezhskoj-oblasti-ot-agenta-po-nedvizhimosti-bobrova-aleksandra-valentinovicha.html"
 url: "/predlozheniya-po-dolgosrochnoj-kommercheskoj-arende-pokupke-nezhilyh-pomeshchenij-i-zemelnyh-uchastkov-v-voronezhskoj-oblasti-ot-agenta-po-nedvizhimosti-bobrova-aleksandra-valentinovicha/"

@@ -1,6 +1,6 @@
 ---
 title: "С Новым 2026 годом!"
-description: "| | | --- | | [С Новым 2026 годом!](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi3BQtU-ziGO-kKEbpB4npfUHa4X9XwGdEAL3GN4qWFC_8ybKV3XeoO5EtsnPKwhK"
+
 aliases:
   - "/2025/12/s-novym-2026-godom.html"
 url: "/s-novym-2026-godom/"

@@ -1,6 +1,6 @@
 ---
 title: "Почему на сайте САН все объявления бесплатные?"
-description: "| | | --- | | [Почему на сайте САН все объявления бесплатные?](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZAHzrW4GPoDJmXHZqqkTRBwejNsV1LPAngpRy"
+
 aliases:
   - "/2025/08/pochemu-na-sajte-san-vse-obyavleniya-besplatnye.html"
 url: "/pochemu-na-sajte-san-vse-obyavleniya-besplatnye/"

@@ -1,6 +1,6 @@
 ---
 title: "Правила качественного оформления страниц риэлтора на сайте САН"
-description: "| | | --- | | [Правила качественного оформления страниц риэлтора на сайте САН](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCi12BCB9YDIuZ-tiUCLYu"
+
 aliases:
   - "/2025/05/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san.html"
 url: "/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san/"

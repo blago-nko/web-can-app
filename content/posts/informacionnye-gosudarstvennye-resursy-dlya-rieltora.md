@@ -1,6 +1,6 @@
 ---
 title: "Информационные государственные ресурсы для риэлтора"
-description: "| | | --- | | [Информационные государственные ресурсы для риэлтора](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhiLb9k0dRhSjmOb4bDejIWAO-gxihnEit"
+
 aliases:
   - "/2025/04/informacionnye-gosudarstvennye-resursy-dlya-rieltora.html"
 url: "/informacionnye-gosudarstvennye-resursy-dlya-rieltora/"

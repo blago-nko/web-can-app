@@ -1,6 +1,6 @@
 ---
 title: "Как работает риелтор? Подробный гид по поиску покупателя и объекта недвижимости"
-description: "[![Как работает риелтор? Подробный гид по поиску покупателя и объекта недвижимости](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi8fHyNzZ6HtE_u0AP"
+
 aliases:
   - "/2025/09/kak-rabotaet-rieltor-podrobnyj-gid-po-poisku-pokupatelya-i-obekta-nedvizhimosti.html"
 url: "/kak-rabotaet-rieltor-podrobnyj-gid-po-poisku-pokupatelya-i-obekta-nedvizhimosti/"

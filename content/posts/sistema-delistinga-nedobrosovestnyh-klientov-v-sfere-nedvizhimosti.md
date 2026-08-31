@@ -1,6 +1,6 @@
 ---
 title: "Система делистинга недобросовестных клиентов в сфере недвижимости"
-description: "| | | --- | | [Делистинг](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEge-yg2eS7YY8CusWPR7Pv2xm5va5RuLvDBV4HTSoqoRPkwZMINu_4mRly0gS9dGUqMDdE6Nnvlm"
+
 aliases:
   - "/2025/06/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti.html"
 url: "/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti/"

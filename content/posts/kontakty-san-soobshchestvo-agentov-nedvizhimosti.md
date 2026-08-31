@@ -1,6 +1,6 @@
 ---
 title: "Контакты САН - сообщество агентов недвижимости"
-description: "| | | --- | | [Контакты САН - сообщество агентов недвижимости](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiK6zns5adlSSIskekP3L17KgLTWjWY__dvzfqv"
+
 aliases:
   - "/2025/05/kontakty-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/kontakty-san-soobshchestvo-agentov-nedvizhimosti/"

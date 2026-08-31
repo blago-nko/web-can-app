@@ -1,6 +1,6 @@
 ---
 title: "Заявление агента по недвижимости об участии в САН - сообществе агентов недвижимости"
-description: "| | | --- | | [САН - сообщество агентов недвижимости](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUFoKZmbkiHdjZTxsTrkPwW9c3qwZ1gWF2J6vbcEv9ESHBI"
+
 aliases:
   - "/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html"
 url: "/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti/"
