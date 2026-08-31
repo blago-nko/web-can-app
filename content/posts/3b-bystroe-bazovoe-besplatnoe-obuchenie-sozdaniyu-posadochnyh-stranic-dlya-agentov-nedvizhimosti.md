@@ -4,6 +4,7 @@ description: "| | | --- | | [3Б - Быстрое базовое бесплат�
 aliases:
   - "/2025/08/3b-bystroe-bazovoe-besplatnoe-obuchenie-sozdaniyu-posadochnyh-stranic-dlya-agentov-nedvizhimosti.html"
 url: "/3b-bystroe-bazovoe-besplatnoe-obuchenie-sozdaniyu-posadochnyh-stranic-dlya-agentov-nedvizhimosti/"
+date: 2025-08-01T00:00:00Z
 ---
 
 |  |

@@ -4,6 +4,7 @@ description: "| | | --- | | [Делистинг](https://blogger.googleuserconte
 aliases:
   - "/2025/06/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti.html"
 url: "/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti/"
+date: 2025-06-01T00:00:00Z
 ---
 
 |  |

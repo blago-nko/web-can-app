@@ -4,6 +4,7 @@ description: "| | | --- | | [ЖК бизнес-класса PROMETHEUS (Воро
 aliases:
   - "/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html"
 url: "/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh/"
+date: 2025-07-01T00:00:00Z
 ---
 
 |  |

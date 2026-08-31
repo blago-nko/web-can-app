@@ -4,6 +4,7 @@ description: "| | | --- | | [Таблица распределения коми�
 aliases:
   - "/2025/10/metodika-tablica-raspredeleniya-komissii-voznagrazhdeniya-mezhdu-agentami-nedvizhimosti-san-pri-sovmestnyh-sdelkah-i-peredache-klientov-obektov.html"
 url: "/metodika-tablica-raspredeleniya-komissii-voznagrazhdeniya-mezhdu-agentami-nedvizhimosti-san-pri-sovmestnyh-sdelkah-i-peredache-klientov-obektov/"
+date: 2025-10-01T00:00:00Z
 ---
 
 |  |

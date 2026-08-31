@@ -4,6 +4,7 @@ description: "| | | --- | | [Бобров Александр Валентино�
 aliases:
   - "/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html"
 url: "/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich/"
+date: 2025-05-01T00:00:00Z
 ---
 
 |  |

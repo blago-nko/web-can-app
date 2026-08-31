@@ -4,6 +4,7 @@ description: "| | | --- | | [Летний дворец Петра I](https://blo
 aliases:
   - "/2025/07/shablon-dogovora-ob-okazanii-uslug-po-poisku-arendatora-i-pokupatelya-sdelannyj-ii.html"
 url: "/shablon-dogovora-ob-okazanii-uslug-po-poisku-arendatora-i-pokupatelya-sdelannyj-ii/"
+date: 2025-07-01T00:00:00Z
 ---
 
 |  |

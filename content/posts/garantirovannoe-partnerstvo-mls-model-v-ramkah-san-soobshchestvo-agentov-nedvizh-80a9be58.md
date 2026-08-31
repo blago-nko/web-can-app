@@ -1,9 +1,10 @@
 ---
-title: "Гарантированное Партнерство (MLS-Модель) в рамках &#171;САН &#8212; Сообщество агентов недвижимости&#187;: Путь к эффективным совместным сделкам"
+title: "Гарантированное Партнерство (MLS-Модель) в рамках «САН — Сообщество агентов недвижимости»: Путь к эффективным совместным сделкам"
 description: "| | | --- | | [Гарантированное Партнерство (MLS-Модель) в рамках «САН — Сообщество агентов недвижимости»: Путь к эффективным совместным сделкам](https://blogger"
 aliases:
   - "/2025/11/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam.html"
 url: "/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam/"
+date: 2025-11-01T00:00:00Z
 ---
 
 |  |

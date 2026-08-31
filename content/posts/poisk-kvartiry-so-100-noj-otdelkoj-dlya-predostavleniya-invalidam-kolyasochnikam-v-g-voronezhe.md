@@ -1,9 +1,10 @@
 ---
-title: "Поиск квартиры со 100%-ной отделкой для предоставления инвалидам&#8209;колясочникам в г. Воронеже"
+title: "Поиск квартиры со 100%-ной отделкой для предоставления инвалидам‑колясочникам в г. Воронеже"
 description: "### | | | --- | | [Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам.](https://blogger.googleusercont"
 aliases:
   - "/2026/03/poisk-kvartiry-so-100-noj-otdelkoj-dlya-predostavleniya-invalidam-kolyasochnikam-v-g-voronezhe.html"
 url: "/poisk-kvartiry-so-100-noj-otdelkoj-dlya-predostavleniya-invalidam-kolyasochnikam-v-g-voronezhe/"
+date: 2026-03-01T00:00:00Z
 ---
 
 ### | | | --- | | [Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам.](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEif1St3IARxEkjL7h8SDCFX72x0Wv8RjQGcr1qRRG2hMMOKwXTXx-vMzoTPZL3-wE7Vgqwzot_cs_V_NDTFF9BM-OtPMjxcf3YrKZFdiNclM0pbOQqq7kwb7hIoZaOL4Aej-rPoskXWiUsAN-9dW1tp9Fa-1lwwjh8apqRSsolK9Lm3mfNFkCtG5UQ5WII/s1344/32589f47247b11f1aeacb286fe4f4b5a.jfif) | | Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам. | Основные требования к объекту

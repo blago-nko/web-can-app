@@ -4,6 +4,7 @@ description: "### **Не сдается, уже найден арендатор*
 aliases:
   - "/2025/05/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha.html"
 url: "/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha/"
+date: 2025-10-01T00:00:00Z
 ---
 
 ### **Не сдается, уже найден арендатор**

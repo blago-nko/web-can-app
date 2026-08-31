@@ -4,6 +4,7 @@ description: "### СОГЛАШЕНИЕ О СОТРУДНИЧЕСТВЕ ПО ПО
 aliases:
   - "/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html"
 url: "/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti/"
+date: 2025-10-01T00:00:00Z
 ---
 
 ### СОГЛАШЕНИЕ О СОТРУДНИЧЕСТВЕ ПО ПОДБОРУ КОММЕРЧЕСКОЙ НЕДВИЖИМОСТИ

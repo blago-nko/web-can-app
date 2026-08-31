@@ -4,6 +4,7 @@ description: "| | | --- | | [Контакты САН - сообщество аг
 aliases:
   - "/2025/05/kontakty-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/kontakty-san-soobshchestvo-agentov-nedvizhimosti/"
+date: 2025-05-01T00:00:00Z
 ---
 
 |  |

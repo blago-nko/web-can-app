@@ -4,6 +4,7 @@ description: "| | | --- | | [Информационные государстве
 aliases:
   - "/2025/04/informacionnye-gosudarstvennye-resursy-dlya-rieltora.html"
 url: "/informacionnye-gosudarstvennye-resursy-dlya-rieltora/"
+date: 2025-04-01T00:00:00Z
 ---
 
 |  |
