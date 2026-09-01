@@ -1,5 +1,5 @@
 ---
-title: "'Аренда торгового помещения в историческом центре Воронежа'"
+title: "Аренда торгового помещения в историческом центре Воронежа"
 aliases:
   - "/2025/05/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha.html"
 url: "/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha/"

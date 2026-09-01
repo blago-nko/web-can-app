@@ -1,5 +1,5 @@
 ---
-title: "'О проекте САН - сообщество агентов недвижимости'"
+title: "О проекте САН - сообщество агентов недвижимости"
 aliases:
   - "/2025/04/o-proekte-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/o-proekte-san-soobshchestvo-agentov-nedvizhimosti/"

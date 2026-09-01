@@ -1,5 +1,5 @@
 ---
-title: "'Анкета объекта для поиска арендатора или покупателя коммерческой недвижимости и согласие на обработку данных агенту по недвижимости Боброву Александру Валентиновичу'"
+title: "Анкета объекта для поиска арендатора или покупателя коммерческой недвижимости и согласие на обработку данных агенту по недвижимости Боброву Александру Валентиновичу"
 aliases:
   - "/2025/05/anketa-obekta-dlya-poiska-arendatora-ili-pokupatelya-kommercheskoj-nedvizhimosti-i-soglasie-na-obrabotku-dannyh-agentu-po-nedvizhimosti-bobrovu-aleksandru-valentinovichu.html"
 url: "/anketa-obekta-dlya-poiska-arendatora-ili-pokupatelya-kommercheskoj-nedvizhimosti-i-soglasie-na-obrabotku-dannyh-agentu-po-nedvizhimosti-bobrovu-aleksandru-valentinovichu/"

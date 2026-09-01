@@ -1,5 +1,5 @@
 ---
-title: "'Шаблон договора об оказании услуг по поиску арендатора и покупателя сделанный ИИ'"
+title: "Шаблон договора об оказании услуг по поиску арендатора и покупателя сделанный ИИ"
 aliases:
   - "/2025/07/shablon-dogovora-ob-okazanii-uslug-po-poisku-arendatora-i-pokupatelya-sdelannyj-ii.html"
 url: "/shablon-dogovora-ob-okazanii-uslug-po-poisku-arendatora-i-pokupatelya-sdelannyj-ii/"

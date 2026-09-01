@@ -1,5 +1,5 @@
 ---
-title: "'Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК \"Аквамарин\" - ул. Артамонова 4д'"
+title: "Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК \"Аквамарин\" - ул. Артамонова 4д"
 aliases:
   - "/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html"
 url: "/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d/"
@@ -171,21 +171,21 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw4Nm6q3FMl7-lSqCz5WkQyBYOlTR_TAe-n-qELv07eKyXlEFQCKpmCi-R1dMVakbgCzj-2x0ntbHwBaYo51-xkSS8fiS1klPeBzvKDuOz-SJ5wM-YQKmGuWkxYtVPWVoXdlC4)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzAlAFYDGTXl49Zit0F-2SlrzrdkMPBOF6-x3wZ0VOIKD_6EK5Dun3077bs_wAnaFS_6O65tiFG2prhG2ym31eskneVTRncdFxvQUbjtfwGrLdAxk9FArGXYfx7-miNheuTLiu_)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dw4Nm6q3FMl7-lSqCz5WkQyBYOlTR_TAe-n-qELv07eKyXlEFQCKpmCi-R1dMVakbgCzj-2x0ntbHwBaYo51-xkSS8fiS1klPeBzvKDuOz-SJ5wM-YQKmGuWkxYtVPWVoXdlC4)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzAlAFYDGTXl49Zit0F-2SlrzrdkMPBOF6-x3wZ0VOIKD_6EK5Dun3077bs_wAnaFS_6O65tiFG2prhG2ym31eskneVTRncdFxvQUbjtfwGrLdAxk9FArGXYfx7-miNheuTLiu_)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyNu9nrTXnOSgNOoOdkY17B1vFd8F_VVerEPoUGylPdOHhnsTofOHJU5e_0TgoViuvdYqOzyHWpUkLz-tSGsRcNT76zaOnflEvdg-DvTMy_llT-yJNDtK2PtnssEaIkCg5G_Kfx)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyNMx-if533BDNiVBT2iGTnXSkyk0mvwidN9nOQXksQSOFZgeWuyMsFrxPj8ikVtKzX6UWeWV136K_UTOAINQAkRfpRNJ6AjUO0jMZMcxzqqVHkNXIk47a6-GK0KHMrtT3gwfg)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dyNu9nrTXnOSgNOoOdkY17B1vFd8F_VVerEPoUGylPdOHhnsTofOHJU5e_0TgoViuvdYqOzyHWpUkLz-tSGsRcNT76zaOnflEvdg-DvTMy_llT-yJNDtK2PtnssEaIkCg5G_Kfx)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dyNMx-if533BDNiVBT2iGTnXSkyk0mvwidN9nOQXksQSOFZgeWuyMsFrxPj8ikVtKzX6UWeWV136K_UTOAINQAkRfpRNJ6AjUO0jMZMcxzqqVHkNXIk47a6-GK0KHMrtT3gwfg)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dydBR2-3HoIn-WQ3OcA4X1l3dj8eaO0gxDMDrYeGXFzjpMyfhKkSPWXL3EFPPmoOTfwyxqLNH2pVJMShLwMJCuYiF_RbXFoei1Q1j_bx-3sGq2Ir1h6sXF2rw095oAwAKUv8Rc)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzaF_fWeNtzhsAqL6LuhChVHGOd95ntezs0uR-qcRIPfPfVboSbj2oG-xmEUAt6uAtO5YeCfC1ArrjJvURnjsrwc9PLVA2A6iZDqh43kaUO_EbIGyyPnRpdMuWO6rh6Wo6p6pY)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dydBR2-3HoIn-WQ3OcA4X1l3dj8eaO0gxDMDrYeGXFzjpMyfhKkSPWXL3EFPPmoOTfwyxqLNH2pVJMShLwMJCuYiF_RbXFoei1Q1j_bx-3sGq2Ir1h6sXF2rw095oAwAKUv8Rc)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzaF_fWeNtzhsAqL6LuhChVHGOd95ntezs0uR-qcRIPfPfVboSbj2oG-xmEUAt6uAtO5YeCfC1ArrjJvURnjsrwc9PLVA2A6iZDqh43kaUO_EbIGyyPnRpdMuWO6rh6Wo6p6pY)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzXOOOIIcaZ817L0yytFdNdT45WboOdSuExikFEpzcQJVnZj24kjTBMAU3MpKT82hACNhpiYn-fL2laL6HBInD961y0RDA5FHj7qV4LcoG_ub_Rqo8OIG_CgEhNMnlCivRC7FDR)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw-eFjl1g1NsMWbYxnSDEAaeFBHq5OyNQezJdsa9uncVnO78Q_4LAB88tbVNZpH3xg2zwPsuI4avYCoc-Zp_WNQT6Eff3IZYkO_XdzdVhXxsXoOYIJ-JbDwNd5qCnLLThN3Q-Lc)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzXOOOIIcaZ817L0yytFdNdT45WboOdSuExikFEpzcQJVnZj24kjTBMAU3MpKT82hACNhpiYn-fL2laL6HBInD961y0RDA5FHj7qV4LcoG_ub_Rqo8OIG_CgEhNMnlCivRC7FDR)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dw-eFjl1g1NsMWbYxnSDEAaeFBHq5OyNQezJdsa9uncVnO78Q_4LAB88tbVNZpH3xg2zwPsuI4avYCoc-Zp_WNQT6Eff3IZYkO_XdzdVhXxsXoOYIJ-JbDwNd5qCnLLThN3Q-Lc)
 
 ### Контакты для связи:
 
