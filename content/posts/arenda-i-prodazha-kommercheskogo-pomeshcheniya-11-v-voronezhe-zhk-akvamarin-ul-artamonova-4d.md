@@ -1,5 +1,5 @@
 ---
-title: "Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК \\\"Аквамарин\\\" - ул. Артамонова 4д"
+title: 'Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК "Аквамарин" - ул. Артамонова 4д'
 aliases:
   - "/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html"
 url: "/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d/"
@@ -171,13 +171,13 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxxpL5AZAu8AixPeybSxN6b0B2HAZTl26tNifj8ls-E8TuZinuBIB3JbDAKuSs5sgqqvhwlS9lyE-vXbkkFOAPL4xf-nzGhz4jrz0LTGfojcZb2RgD426fQw4S5QKnCEkJARey3&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzMTRVnBYukmxbMbdYUYqzAwFVomrC2s9SGuOE9XCZFPBlp3itJ5G4DtXLOQeXPcTm58xZ2MGhGc0wWarCgV2aC5Qt9LoylBetW6Ffe6BQYPJkF62qckox3PjGjByYt7tFNY9u4&origin=can.blagorussia.ru)
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxsby-GQAZ3ZB535mFaTfTFDKbFdZjF30KoGj2wng4Qb7uEFnYcAJkZr_Vd66jFV-aDnoDKTq6hLuzaGVY2ysoQKLuo_0IGzfj7qinyKNFoZtt0hs-ZpkTl3UIHRXTG53QDK-o&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxJ49spmrX0C1mtvEgFEHlQDgdO3Dx5GQiFmPlmj49hGEpfp6W5RfJWXMwLBT5q1Fd3uaLOtgIaX_jrSXz4zcgIRgSbnWO-wUM7VvkoW1jwebRHAbg-qeMvL3NNCdcnbKvvI5Ey&origin=can.blagorussia.ru)
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxVXzISLOGmFk3UDrEzfx_WwL-Y4USz0fToZmBMI0kfZbmRetWJkJK0zBJR62Yy4z1ciYAhqeTJCVomdpUMcT1q_R6gWO5OJUVs-bHr3q29b3tRtX3k8rVVTXCWPYxdtmfyxPs4&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzAZDg9foZH0myRkrDa8yveWGSYP4MlYL_FVspRIU8sca86h2aQasn9r3WLMHmZdSsofvDW77xAqm168cBfr0IVv4uo_h3QLtH3SP1nLIwDjMKySKqS0oDp-Uygi4eDKKJRMF7V&origin=can.blagorussia.ru)
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dy_MtPJC40_CimLyFpg5ut-YOI40ZYLvCEdMKi_5AKXcIG7ypgtZ1aEzgnuwd0-Q7bK_ZwZKv4lANtzoma7gFXVlftvJTgKbqaaNB0NUrggTDwlWweEvwfrzV39b5bTIpEwe7s&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxrQ-tb42LM6Wt_DX4uywuMURkGgQz3Sh6h0_5GV6auIDSZiPyL13gtldcAZIPSBX3ALp9PZGayBhRT5_O0QyrZeDciNKAn2YesbtZI9DEtxpW0WekMZdRZJNrCVjdXIdt64m0&origin=can.blagorussia.ru)
 
 ### Контакты для связи:
 

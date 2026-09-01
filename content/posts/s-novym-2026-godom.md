@@ -1,5 +1,5 @@
 ---
-title: "С Новым 2026 годом!"
+title: 'С Новым 2026 годом!'
 aliases:
   - "/2025/12/s-novym-2026-godom.html"
 url: "/s-novym-2026-godom/"
@@ -19,7 +19,7 @@ date: 2025-12-01T00:00:00Z
 
 - **Успешный старт**: Мы запустили САН как платформу, объединившую профессионалов, готовых работать по принципам доверия и **[MLS-модели](https://can.blagorussia.ru/2025/11/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam.html)**.
 
-- **Автоматизация и охват**: Мы внедрили **единую базу объектов с системой автоматического размещения на крупных информационных площадках**. Теперь агентам САН не нужно тратить время на ручной перенос данных — ваши объекты транслируются на ведущие ресурсы страны и мира автоматически.
+- **Автоматизация и охват**: Мы внедрили ** единую базу объектов с системой автоматического размещения на крупных информационных площадках**. Теперь агентам САН не нужно тратить время на ручной перенос данных — ваши объекты транслируются на ведущие ресурсы страны и мира автоматически.
 
 - **Цифровая трансформация:** Мы научились создавать профессиональные посадочные страницы и использовать ИИ для подготовки договоров, делая презентацию объектов в ЖК [«Прометей»](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html), [«Чайка](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html)», [«Аквамарин»](https://can.blagorussia.ru/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html) и других комплексах безупречной.
 

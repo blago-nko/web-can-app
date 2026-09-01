@@ -1,5 +1,5 @@
 ---
-title: "Коммерческие объекты недвижимости на продажу и в аренду от риелтора Боброва Александра Валентиновича"
+title: 'Коммерческие объекты недвижимости на продажу и в аренду от риелтора Боброва Александра Валентиновича'
 aliases:
   - "/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html"
 url: "/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha/"

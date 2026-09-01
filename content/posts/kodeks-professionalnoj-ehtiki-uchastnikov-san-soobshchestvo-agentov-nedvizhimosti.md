@@ -1,5 +1,5 @@
 ---
-title: "Кодекс профессиональной этики участников САН - Сообщество агентов недвижимости"
+title: 'Кодекс профессиональной этики участников САН - Сообщество агентов недвижимости'
 aliases:
   - "/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti/"
