@@ -1,5 +1,5 @@
 ---
-title: '''Аренда и Продажа Коммерческого Помещения №6 в ЖЦ "Интурист", Воронеж (ул. Ростовская, 100Б)'''
+title: "'Аренда и Продажа Коммерческого Помещения №6 в ЖЦ \"Интурист\", Воронеж (ул. Ростовская, 100Б)'"
 aliases:
   - "/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-6-v-zhc-inturist-voronezh-ul-rostovskaya-100b.html"
 url: "/arenda-i-prodazha-kommercheskogo-pomeshcheniya-6-v-zhc-inturist-voronezh-ul-rostovskaya-100b/"
@@ -169,15 +169,25 @@ date: 2025-11-01T00:00:00Z
 
 #### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwenJABVCASo3fgoEsQ7OW54e4fpu12NMRv8mpgDUJ-2mLJx3h_XWjjaLBixtzltF8vt78DRsb-PJlvoSj19XZwtp-mvzSCNkQ_C9S0TPniyeZqhDgKd4tmoosxPO6TdApT_J5O&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzn9GoA6LIGkUNO8SCpb6e5CMZINgvMvh3qAb91Rv1EzYYKyOf2jg2nWlPghsyss2hZiEgYmJyXm4yBzbNwQwkhNmz-JpmhE8qXj_2CZIBGYUqcmMmfHs7dFM1kwhpjU5HyPWg)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dylANbwMTW8QiHv94We5jVa3pBd4yEJ7b4FdkzWU-NCemkfECo1N58aYX0kwYrAoSDkM8K-0VNUNOdzdUrgX1nViI0GCrvRXsXHAOOq8ol7dHPL5WRtXK_BrCR8EAjXusWL5Tw&origin=can.blagorussia.ru)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzn9GoA6LIGkUNO8SCpb6e5CMZINgvMvh3qAb91Rv1EzYYKyOf2jg2nWlPghsyss2hZiEgYmJyXm4yBzbNwQwkhNmz-JpmhE8qXj_2CZIBGYUqcmMmfHs7dFM1kwhpjU5HyPWg)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyFKcBbkLA-64MHZSpCB_Kz505Qm16gSUHPaZBEoqpZEciRHxJasA_4cccDhcGiyCRZTeK87cY6T2kbvipKPzHkCLoep1yY8ZlMPQFUsQhK8QWtA8Yyz6rMI0WCXF8gcjv8CQk&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxXwsx2ozpp4w_5G4UvDqOJhbnvQ2FU0AmGa26BYluLAfJrmyVWbCaMDV0Fhqda9enpOSeQ60NVbnfbwAFMSGpuevaGCaEAa1ZCEP8qlV-XfYHX4KxNQr5DFOwDz3leXcjtzA8)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dx6Yq4Yc5pwOsX34wy2f-Bj805OUkup8lI7KCQS_EXTYfqoGjHpAc_NEg2Ip6cjzFKXjcH7MPeexSqFGAuxDkL8pvOggebN-bId-Ag65ejyFZNjME3PKtgm-KwsdTUq-NOgVk4&origin=can.blagorussia.ru)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxXwsx2ozpp4w_5G4UvDqOJhbnvQ2FU0AmGa26BYluLAfJrmyVWbCaMDV0Fhqda9enpOSeQ60NVbnfbwAFMSGpuevaGCaEAa1ZCEP8qlV-XfYHX4KxNQr5DFOwDz3leXcjtzA8)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw9enanwmVp2tlqWI0-gMjkL_kw60xPA3J33YN441t7gPoZucaiGpmTeaRSE5k0C7xzcmt96esiFfKeunK19VL4j1PTBJf1F2qZgSKFAswlO-cKVu8WGXudP0sF8mNCcnwCgeqe&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dx96ztluD5IAwdmpDbxujByVX5P9GHkToHlo8fpMz1w1fFhsSFAxbuimIIvWBJ0PqL11-rRRvfcQZkB_TQyZ8lQ3u6YEtrbBvPnpHwIJ-6w0un0SxvLkE57x8xyTpW_CIjOxkpu)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dx96ztluD5IAwdmpDbxujByVX5P9GHkToHlo8fpMz1w1fFhsSFAxbuimIIvWBJ0PqL11-rRRvfcQZkB_TQyZ8lQ3u6YEtrbBvPnpHwIJ-6w0un0SxvLkE57x8xyTpW_CIjOxkpu)
+
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzWVX4hsyv-FyNvT0xnaT5NBQarv1PfSsGXtzub8887pjjGQ6GfEt-dKHOsYiteBTC3iPj79_z3DOm4lQDkMTCq0OAZuBbsM9IhvbZbvc57yA87b00JVNWC_vwM3l5St5gdNrBH)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzWVX4hsyv-FyNvT0xnaT5NBQarv1PfSsGXtzub8887pjjGQ6GfEt-dKHOsYiteBTC3iPj79_z3DOm4lQDkMTCq0OAZuBbsM9IhvbZbvc57yA87b00JVNWC_vwM3l5St5gdNrBH)
+
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzAYk1Sx5Ai1Qfbg7lWhQoCsW-WRpFfsgX1AA-ZRFnXCO4treZ900m0wqEkFYacSaotn8BpCWvlUN0YzCTC_xGiqZL4m5_a2tTJcRON4-mw--xlI3E7B0t31_YmV0pAs22pjq-s)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzAYk1Sx5Ai1Qfbg7lWhQoCsW-WRpFfsgX1AA-ZRFnXCO4treZ900m0wqEkFYacSaotn8BpCWvlUN0YzCTC_xGiqZL4m5_a2tTJcRON4-mw--xlI3E7B0t31_YmV0pAs22pjq-s)
 
 ### Контакты для связи:
 
@@ -185,5 +195,4 @@ date: 2025-11-01T00:00:00Z
 
 - Email: bobr-al@yandex.ru
 
-- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения модно **[ЗДЕСЬ](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)**
-
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения модно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)

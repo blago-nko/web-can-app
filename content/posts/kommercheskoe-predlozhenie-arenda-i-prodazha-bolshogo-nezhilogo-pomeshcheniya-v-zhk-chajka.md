@@ -1,5 +1,5 @@
 ---
-title: '''Коммерческое предложение: Аренда и продажа большого нежилого помещения в ЖК «Чайка»'''
+title: "'Коммерческое предложение: Аренда и продажа большого нежилого помещения в ЖК «Чайка»'"
 aliases:
   - "/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html"
 url: "/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka/"
@@ -141,13 +141,21 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy3-x-NXZ5byEiQeUiXQGYMEbhrrMKLEexLunU7pbNSEb9Dw1EmTmx7M3hVFkN6TGmjeqEeh-6Njy_9hpTF0osSp7u-jlc3oEcydNWuWrYlatgdn-o6W_I7rWCQZHQp9gmY2Q2H&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz7mydfApPwTvJYJ5h7h1QmaPghsp0TKkZ4V5bH_VlJUzc1xRzOpuy2Jz36oQpgJxYTXl53PmJ06TVv5dIz4tesbcjvOZyWCynRZ3IpzuDHi1sySLI1dirOy9os7WnFDIKP4lM)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyJmEFZWRvyMiSHnG6xCJ-jrgPUYoG9CmsCHSZfM9QSYvpPzbxDFOKPQtz4h_oa45K6ACb9dGnXozNEvpAN15xOL7sj8TCKWtqT-r4YYll0jkQ3z85ybBRNbOfLwQteQeTblhMD&origin=can.blagorussia.ru)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz7mydfApPwTvJYJ5h7h1QmaPghsp0TKkZ4V5bH_VlJUzc1xRzOpuy2Jz36oQpgJxYTXl53PmJ06TVv5dIz4tesbcjvOZyWCynRZ3IpzuDHi1sySLI1dirOy9os7WnFDIKP4lM)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxMhGbKIlSQZGpGRGprlT8p9SHP0geAdcE6SRWV0IGR3cfluE4VRZbBhzTBfunhc5bPA6pBg0yD7zBC14wU_RS91r-HlISoH5fahBJRxuuULd-OBZMVctf6_s2_YIldeuw8fq5Z&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwqPrZk25u-4Sisg43uYeG673IBvkzR_My8aYkzktzwu54OXI8vS5V_SilzAxgJI2Qkaf6rOKG_plkAwXHat5nAwAYBnBJmRWwmIKqmVUnIQzIhpE6bJkYCZ51xknq3kYfqd8kQ)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwbgvYwSxyM9ORU_iOSnTgh_MZugaGDz-Laf7CggLFm0xlwCZm-UqbD_MlQ3CyA5qUKma5q3ypZ15XRERF7n-6CijG2w5pgU9F184Gsa5kp11OpvKO3PpRlGUcutqNKuRGgoJzw&origin=can.blagorussia.ru)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwqPrZk25u-4Sisg43uYeG673IBvkzR_My8aYkzktzwu54OXI8vS5V_SilzAxgJI2Qkaf6rOKG_plkAwXHat5nAwAYBnBJmRWwmIKqmVUnIQzIhpE6bJkYCZ51xknq3kYfqd8kQ)
+
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxQ3K1nb0rIYzOVYKBSUlc_upVFDQ16m5RzDzk57_u2_b23TOkk56RCii2Z8AtAjNtOXwxSGS8DsotzqHH10JXNZW-VK6N-TOfxym4JI74qDed22Cc0JB_b7kNOGezw0aCSPyI)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxQ3K1nb0rIYzOVYKBSUlc_upVFDQ16m5RzDzk57_u2_b23TOkk56RCii2Z8AtAjNtOXwxSGS8DsotzqHH10JXNZW-VK6N-TOfxym4JI74qDed22Cc0JB_b7kNOGezw0aCSPyI)
+
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxjUMllnMcYBKx0x-nyRHQ2CxYZhN-NxysL3oLg0M1UUlbgklUd_G4DYeRFQbSrFWd1bKyBdrjbfOv5ZOJvP_ti3RbpEr809AcyB5ee8lqQBN1dCGJ4qGxymkvJZUArNCbq8ocP)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxjUMllnMcYBKx0x-nyRHQ2CxYZhN-NxysL3oLg0M1UUlbgklUd_G4DYeRFQbSrFWd1bKyBdrjbfOv5ZOJvP_ti3RbpEr809AcyB5ee8lqQBN1dCGJ4qGxymkvJZUArNCbq8ocP)
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
@@ -245,4 +253,4 @@ date: 2025-10-01T00:00:00Z
 
 - Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
 
-- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения можно **[ЗДЕСЬ](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)**
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения можно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)

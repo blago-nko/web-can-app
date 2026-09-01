@@ -1,5 +1,5 @@
 ---
-title: '''3Б - Быстрое базовое бесплатное обучение созданию посадочных страниц для агентов недвижимости'''
+title: "'3Б - Быстрое базовое бесплатное обучение созданию посадочных страниц для агентов недвижимости'"
 aliases:
   - "/2025/08/3b-bystroe-bazovoe-besplatnoe-obuchenie-sozdaniyu-posadochnyh-stranic-dlya-agentov-nedvizhimosti.html"
 url: "/3b-bystroe-bazovoe-besplatnoe-obuchenie-sozdaniyu-posadochnyh-stranic-dlya-agentov-nedvizhimosti/"
@@ -67,7 +67,7 @@ date: 2025-08-01T00:00:00Z
 
 #### Как начать обучение прямо сейчас?
 
-- **[Регистрация](https://can.blagorussia.ru/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html)** на сайте САН
+- [**Регистрация**](https://can.blagorussia.ru/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html) на сайте САН
 
 - **Вход** через [Google-аккаунт](https://www.google.com/intl/ru/account/about/)
 

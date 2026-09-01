@@ -1,5 +1,5 @@
 ---
-title: '''Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК "Аквамарин" - ул. Артамонова 4д'''
+title: "'Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК \"Аквамарин\" - ул. Артамонова 4д'"
 aliases:
   - "/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html"
 url: "/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d/"
@@ -171,13 +171,21 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyitqIgws7R6Tc30b9SVhP2nIlfos8vmyaXSHLHGLdfwPq3Qf9glNHYyCpTPoiVlVzxx4tTcDHzWa-rt67wN46_7kOUI-3RO0siCsCPaDI2orS5PCQSHsh-Qr9OGb5BqyFalAk&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw4Nm6q3FMl7-lSqCz5WkQyBYOlTR_TAe-n-qELv07eKyXlEFQCKpmCi-R1dMVakbgCzj-2x0ntbHwBaYo51-xkSS8fiS1klPeBzvKDuOz-SJ5wM-YQKmGuWkxYtVPWVoXdlC4)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxZ7KYfPIkBIrTGWI20a1khMLzIsZ4vHi5AIjFg2Ovb9TVUbbcifbGaJRqd7bTkmlf6irH1xWQ40rMoaW6pJV85FUcph_8zP68MqoIeQJWfUlTy407zpkJlbFOVMWaEQY9hPik&origin=can.blagorussia.ru)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dw4Nm6q3FMl7-lSqCz5WkQyBYOlTR_TAe-n-qELv07eKyXlEFQCKpmCi-R1dMVakbgCzj-2x0ntbHwBaYo51-xkSS8fiS1klPeBzvKDuOz-SJ5wM-YQKmGuWkxYtVPWVoXdlC4)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy6vpxKXrxpBvvjpFFULZPZM47udrJFhI0OZa-XYN0cCs8AYNqL1yIWnfHpVGLSFNHud1fFuNMWe-iUXmnTw3z64pJdhaej5agFDZ9X28PO3C4sPdjg1ct-_TxUfg2khJbWqlI&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyNu9nrTXnOSgNOoOdkY17B1vFd8F_VVerEPoUGylPdOHhnsTofOHJU5e_0TgoViuvdYqOzyHWpUkLz-tSGsRcNT76zaOnflEvdg-DvTMy_llT-yJNDtK2PtnssEaIkCg5G_Kfx)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyrHv9lim3ABT9vIaz_h84MX1AqqwOFLhTLBX5fbbUrKWkalBdlBNQu8xo1M8XvfzLyXEBPgoHKqAXb1RaYCc5sAkRmY6mRLqrEnylKZUQJrZeXKffRkhsmW0ahc1BbXgqJAGg&origin=can.blagorussia.ru)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dyNu9nrTXnOSgNOoOdkY17B1vFd8F_VVerEPoUGylPdOHhnsTofOHJU5e_0TgoViuvdYqOzyHWpUkLz-tSGsRcNT76zaOnflEvdg-DvTMy_llT-yJNDtK2PtnssEaIkCg5G_Kfx)
+
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dydBR2-3HoIn-WQ3OcA4X1l3dj8eaO0gxDMDrYeGXFzjpMyfhKkSPWXL3EFPPmoOTfwyxqLNH2pVJMShLwMJCuYiF_RbXFoei1Q1j_bx-3sGq2Ir1h6sXF2rw095oAwAKUv8Rc)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dydBR2-3HoIn-WQ3OcA4X1l3dj8eaO0gxDMDrYeGXFzjpMyfhKkSPWXL3EFPPmoOTfwyxqLNH2pVJMShLwMJCuYiF_RbXFoei1Q1j_bx-3sGq2Ir1h6sXF2rw095oAwAKUv8Rc)
+
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzXOOOIIcaZ817L0yytFdNdT45WboOdSuExikFEpzcQJVnZj24kjTBMAU3MpKT82hACNhpiYn-fL2laL6HBInD961y0RDA5FHj7qV4LcoG_ub_Rqo8OIG_CgEhNMnlCivRC7FDR)
+
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzXOOOIIcaZ817L0yytFdNdT45WboOdSuExikFEpzcQJVnZj24kjTBMAU3MpKT82hACNhpiYn-fL2laL6HBInD961y0RDA5FHj7qV4LcoG_ub_Rqo8OIG_CgEhNMnlCivRC7FDR)
 
 ### Контакты для связи:
 
@@ -185,4 +193,4 @@ date: 2025-11-01T00:00:00Z
 
 - Email: bobr-al@yandex.ru
 
-- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения модно **[ЗДЕСЬ](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)**
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения модно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
