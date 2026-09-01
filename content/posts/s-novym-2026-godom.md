@@ -1,5 +1,5 @@
 ---
-title: 'С Новым 2026 годом!'
+title: '''С Новым 2026 годом!'''
 aliases:
   - "/2025/12/s-novym-2026-godom.html"
 url: "/s-novym-2026-godom/"

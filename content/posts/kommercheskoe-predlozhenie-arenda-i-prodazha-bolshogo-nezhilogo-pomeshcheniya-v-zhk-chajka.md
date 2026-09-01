@@ -1,5 +1,5 @@
 ---
-title: 'Коммерческое предложение: Аренда и продажа большого нежилого помещения в ЖК «Чайка»'
+title: '''Коммерческое предложение: Аренда и продажа большого нежилого помещения в ЖК «Чайка»'''
 aliases:
   - "/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html"
 url: "/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka/"
@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxeegY_WGSanbS3RqaG4oNPu9j-F6hoo4ERN0ZqYPgPj2mjL7HOzpp7fjmpIVnA-e7pRqtZQNhYj0GCIz-w2s2-Fv2-h8gBVue6BZAASRr8dbaAMUiT6OdwqyHzCy0MJ5H8-d5p&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy3-x-NXZ5byEiQeUiXQGYMEbhrrMKLEexLunU7pbNSEb9Dw1EmTmx7M3hVFkN6TGmjeqEeh-6Njy_9hpTF0osSp7u-jlc3oEcydNWuWrYlatgdn-o6W_I7rWCQZHQp9gmY2Q2H&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzaq130Oa6LjTly-a-Jw_t-sjKJEsGN6FPQHPtfznO0ymxEpbTUjJNBEkGp3zhyXF7p3QjAmOCuCfb256ZqCCI2wXxnb8MR8EFTmG-o9sgIvNlS_I3h86K7GWW2lQuTymocnWQ&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyJmEFZWRvyMiSHnG6xCJ-jrgPUYoG9CmsCHSZfM9QSYvpPzbxDFOKPQtz4h_oa45K6ACb9dGnXozNEvpAN15xOL7sj8TCKWtqT-r4YYll0jkQ3z85ybBRNbOfLwQteQeTblhMD&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwsMmqVRjizvt6UrZj_jEqL3QCF76VklIFtSToTECbaOW0SL1NJVvKNHShTbnY6oukbn6LUL9oN2HRWOmOw37QmpheAbyvB98yHQnDXa_WXR5bvadJTSpy23jfYcKvESWajh2jX&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxMhGbKIlSQZGpGRGprlT8p9SHP0geAdcE6SRWV0IGR3cfluE4VRZbBhzTBfunhc5bPA6pBg0yD7zBC14wU_RS91r-HlISoH5fahBJRxuuULd-OBZMVctf6_s2_YIldeuw8fq5Z&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxXrJfC2FXMJji-B2QGTriMBbqqFeo6AwpwXOHEFOdl-7WHcp44L4AQOJdfJ-3Kb2uCRGycpoTSrlH86SqpoNH7IU0YtIYbKCOhtTw2hWn25chzFUzu0xe3zm2MAU5O9xMpJv8&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwbgvYwSxyM9ORU_iOSnTgh_MZugaGDz-Laf7CggLFm0xlwCZm-UqbD_MlQ3CyA5qUKma5q3ypZ15XRERF7n-6CijG2w5pgU9F184Gsa5kp11OpvKO3PpRlGUcutqNKuRGgoJzw&origin=can.blagorussia.ru)
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 

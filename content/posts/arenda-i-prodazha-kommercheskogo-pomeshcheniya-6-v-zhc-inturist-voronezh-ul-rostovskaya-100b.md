@@ -1,5 +1,5 @@
 ---
-title: 'Аренда и Продажа Коммерческого Помещения №6 в ЖЦ "Интурист", Воронеж (ул. Ростовская, 100Б)'
+title: '''Аренда и Продажа Коммерческого Помещения №6 в ЖЦ "Интурист", Воронеж (ул. Ростовская, 100Б)'''
 aliases:
   - "/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-6-v-zhc-inturist-voronezh-ul-rostovskaya-100b.html"
 url: "/arenda-i-prodazha-kommercheskogo-pomeshcheniya-6-v-zhc-inturist-voronezh-ul-rostovskaya-100b/"
@@ -169,15 +169,15 @@ date: 2025-11-01T00:00:00Z
 
 #### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dx8Mm1pch90_-pLUHa_Yb0AwoUGwwzDWn0gqx32i18JeCOiw1kdvnUkwL6IbtcvdjG9CxE3rwhXMKVBA4RBdFjPGjh-DftFTW2adsM_voUI4ePo6QR8AOpnDEbof-TglpL9dcaU&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwenJABVCASo3fgoEsQ7OW54e4fpu12NMRv8mpgDUJ-2mLJx3h_XWjjaLBixtzltF8vt78DRsb-PJlvoSj19XZwtp-mvzSCNkQ_C9S0TPniyeZqhDgKd4tmoosxPO6TdApT_J5O&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzXAjzkZsB7AeB-AXN-wQH5RkCc0GxPUmfbm4q0AkcvS7RQ7SEMrG34EbdWnB4VrSMbk2QnQfgjls6oUSPq7NLhaGgoqmx3xp7s4Vwn_TUpSuXnVxt5Lf24JpTEvtauJXr83SQ&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dylANbwMTW8QiHv94We5jVa3pBd4yEJ7b4FdkzWU-NCemkfECo1N58aYX0kwYrAoSDkM8K-0VNUNOdzdUrgX1nViI0GCrvRXsXHAOOq8ol7dHPL5WRtXK_BrCR8EAjXusWL5Tw&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzD7lIx5XVhwQCoGIbhFJ6YJjv62oU_SH-Vbq5XTfjF2jQmVbwmNpbuQPUqwrAdIl9u_iFTXu5PSjzqXZVnMNpcd7xdmG9yT0KqNyRg81S9CkH_yBzxUajo9i8IRv1F900l7yP9&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyFKcBbkLA-64MHZSpCB_Kz505Qm16gSUHPaZBEoqpZEciRHxJasA_4cccDhcGiyCRZTeK87cY6T2kbvipKPzHkCLoep1yY8ZlMPQFUsQhK8QWtA8Yyz6rMI0WCXF8gcjv8CQk&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dx7fPAGKeLvvzcvnhMAM6Nz7HdwKNsfpkJi4THDEOM0jcO7LGLdurlIEBnznaPIQNN30gq6ytxwuXJ0hz5572EO91rV9UP2bfIWMT20_dh9bEoZRj32nHdJODvcZw_l077FG2j2&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dx6Yq4Yc5pwOsX34wy2f-Bj805OUkup8lI7KCQS_EXTYfqoGjHpAc_NEg2Ip6cjzFKXjcH7MPeexSqFGAuxDkL8pvOggebN-bId-Ag65ejyFZNjME3PKtgm-KwsdTUq-NOgVk4&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwqPSyiUPQIUVjLPBfeVNA4ZmSDNfyp_Fy0_0wMbNw5gBx3e8FxCcAsvmjoLgeBbnMY5xUvDQCDUfaVtWEb3XgpRowisQj0JXx_ut4aNmXQDsJb7i-4ru7qguvVBPn6Ent5gL4&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw9enanwmVp2tlqWI0-gMjkL_kw60xPA3J33YN441t7gPoZucaiGpmTeaRSE5k0C7xzcmt96esiFfKeunK19VL4j1PTBJf1F2qZgSKFAswlO-cKVu8WGXudP0sF8mNCcnwCgeqe&origin=can.blagorussia.ru)
 
 ### Контакты для связи:
 

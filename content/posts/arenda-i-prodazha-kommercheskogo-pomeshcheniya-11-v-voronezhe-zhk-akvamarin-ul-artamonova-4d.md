@@ -1,5 +1,5 @@
 ---
-title: 'Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК "Аквамарин" - ул. Артамонова 4д'
+title: '''Аренда и Продажа Коммерческого Помещения № 11 в Воронеже ЖК "Аквамарин" - ул. Артамонова 4д'''
 aliases:
   - "/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html"
 url: "/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d/"
@@ -171,13 +171,13 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzMTRVnBYukmxbMbdYUYqzAwFVomrC2s9SGuOE9XCZFPBlp3itJ5G4DtXLOQeXPcTm58xZ2MGhGc0wWarCgV2aC5Qt9LoylBetW6Ffe6BQYPJkF62qckox3PjGjByYt7tFNY9u4&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyitqIgws7R6Tc30b9SVhP2nIlfos8vmyaXSHLHGLdfwPq3Qf9glNHYyCpTPoiVlVzxx4tTcDHzWa-rt67wN46_7kOUI-3RO0siCsCPaDI2orS5PCQSHsh-Qr9OGb5BqyFalAk&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxJ49spmrX0C1mtvEgFEHlQDgdO3Dx5GQiFmPlmj49hGEpfp6W5RfJWXMwLBT5q1Fd3uaLOtgIaX_jrSXz4zcgIRgSbnWO-wUM7VvkoW1jwebRHAbg-qeMvL3NNCdcnbKvvI5Ey&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxZ7KYfPIkBIrTGWI20a1khMLzIsZ4vHi5AIjFg2Ovb9TVUbbcifbGaJRqd7bTkmlf6irH1xWQ40rMoaW6pJV85FUcph_8zP68MqoIeQJWfUlTy407zpkJlbFOVMWaEQY9hPik&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzAZDg9foZH0myRkrDa8yveWGSYP4MlYL_FVspRIU8sca86h2aQasn9r3WLMHmZdSsofvDW77xAqm168cBfr0IVv4uo_h3QLtH3SP1nLIwDjMKySKqS0oDp-Uygi4eDKKJRMF7V&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy6vpxKXrxpBvvjpFFULZPZM47udrJFhI0OZa-XYN0cCs8AYNqL1yIWnfHpVGLSFNHud1fFuNMWe-iUXmnTw3z64pJdhaej5agFDZ9X28PO3C4sPdjg1ct-_TxUfg2khJbWqlI&origin=can.blagorussia.ru)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxrQ-tb42LM6Wt_DX4uywuMURkGgQz3Sh6h0_5GV6auIDSZiPyL13gtldcAZIPSBX3ALp9PZGayBhRT5_O0QyrZeDciNKAn2YesbtZI9DEtxpW0WekMZdRZJNrCVjdXIdt64m0&origin=can.blagorussia.ru)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyrHv9lim3ABT9vIaz_h84MX1AqqwOFLhTLBX5fbbUrKWkalBdlBNQu8xo1M8XvfzLyXEBPgoHKqAXb1RaYCc5sAkRmY6mRLqrEnylKZUQJrZeXKffRkhsmW0ahc1BbXgqJAGg&origin=can.blagorussia.ru)
 
 ### Контакты для связи:
 
