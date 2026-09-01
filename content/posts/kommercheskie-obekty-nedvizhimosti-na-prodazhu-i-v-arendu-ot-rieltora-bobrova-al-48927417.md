@@ -19,10 +19,10 @@ date: 2025-10-01T00:00:00Z
 
 Дополнительные данные по этим объектам и другим (не публикуемых в открытом доступе) предоставляются:
 
-* -  после верификации клиента;
+\* -  после верификации клиента;
 
-** - после заключения [Соглашения о сотрудничестве](https://can.blagorussia.ru/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html);
+\*\* - после заключения [Соглашения о сотрудничестве](https://can.blagorussia.ru/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html);
 
-*** - после заключения агентского договора.
+\*\*\* - после заключения агентского договора.
 
 Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
