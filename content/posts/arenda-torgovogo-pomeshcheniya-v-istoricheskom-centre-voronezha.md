@@ -1,5 +1,5 @@
 ---
-title: "Аренда торгового помещения в историческом центре Воронежа"
+title: 'Аренда торгового помещения в историческом центре Воронежа'
 aliases:
   - "/2025/05/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha.html"
 url: "/arenda-torgovogo-pomeshcheniya-v-istoricheskom-centre-voronezha/"
@@ -99,7 +99,7 @@ date: 2025-10-01T00:00:00Z
 
 **Цена аренды:** 105 000 рублей в месяц
 
-**Цена за метр:**1 544 рублей
+**Цена за метр:** 1 544 рублей
 
 **Вознаграждение агентству** одна месячная цена за аренду.
 

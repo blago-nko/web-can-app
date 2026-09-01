@@ -1,5 +1,5 @@
 ---
-title: "Соглашение о сотрудничестве по подбору коммерческой недвижимости"
+title: 'Соглашение о сотрудничестве по подбору коммерческой недвижимости'
 aliases:
   - "/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html"
 url: "/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti/"
