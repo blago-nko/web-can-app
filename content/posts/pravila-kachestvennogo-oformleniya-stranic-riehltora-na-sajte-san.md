@@ -1,5 +1,5 @@
 ---
-title: 'Правила качественного оформления страниц риэлтора на сайте САН'
+title: '''Правила качественного оформления страниц риэлтора на сайте САН'''
 aliases:
   - "/2025/05/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san.html"
 url: "/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san/"

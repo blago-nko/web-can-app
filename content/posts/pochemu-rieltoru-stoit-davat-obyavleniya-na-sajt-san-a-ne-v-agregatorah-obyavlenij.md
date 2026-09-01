@@ -1,5 +1,5 @@
 ---
-title: 'Почему риелтору стоит давать объявления на сайт САН, а не в агрегаторах объявлений?'
+title: '''Почему риелтору стоит давать объявления на сайт САН, а не в агрегаторах объявлений?'''
 aliases:
   - "/2025/09/pochemu-rieltoru-stoit-davat-obyavleniya-na-sajt-san-a-ne-v-agregatorah-obyavlenij.html"
 url: "/pochemu-rieltoru-stoit-davat-obyavleniya-na-sajt-san-a-ne-v-agregatorah-obyavlenij/"

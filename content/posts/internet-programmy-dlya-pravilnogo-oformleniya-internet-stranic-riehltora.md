@@ -1,5 +1,5 @@
 ---
-title: 'Интернет программы для правильного оформления интернет страниц риэлтора'
+title: '''Интернет программы для правильного оформления интернет страниц риэлтора'''
 aliases:
   - "/2025/05/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora.html"
 url: "/internet-programmy-dlya-pravilnogo-oformleniya-internet-stranic-riehltora/"
