@@ -5,9 +5,9 @@ aliases:
 url: "/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha/"
 date: 2025-10-01T00:00:00Z
 ---
-На этой странице предлагаются к аренде и продаже коммерческие объекты от агента по недвижимости [Боброва Александра Валентиновича](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).
+На этой странице предлагаются к аренде и продаже коммерческие объекты от агента по недвижимости [Боброва Александра Валентиновича](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).
 
-Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
+Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
 
 ### Воронежская область (г. Воронеж)
 
@@ -19,9 +19,9 @@ date: 2025-10-01T00:00:00Z
 
 Без отделки
 
- ЖК "Чайка" - ул. Хользунова 99б](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html)1503,935043 88766 000 0002
+ ЖК "Чайка" - ул. Хользунова 99б](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html)1503,935043 88766 000 0002
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL8RSOe1YDAAfoQv7k2i4mN9zzGMEtfYU2s61G21ZTGrPXRyuJvIu58oz9j1__h9vx1_x4_BAowzjffOv9mIAjngMtpECukizK-kgQvSjfRsjHaAoeHokISKOXgWIRZZwueGwTGaIAwkkgDoaqPB1DW19YRq3Be0OLrffiHxedH3AwFoG81UYC9_ovEuw/w400-h300-rw/e149aac5-c64d-440b-a2a3-843ae43019bb.jpeg" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL8RSOe1YDAAfoQv7k2i4mN9zzGMEtfYU2s61G21ZTGrPXRyuJvIu58oz9j1__h9vx1_x4_BAowzjffOv9mIAjngMtpECukizK-kgQvSjfRsjHaAoeHokISKOXgWIRZZwueGwTGaIAwkkgDoaqPB1DW19YRq3Be0OLrffiHxedH3AwFoG81UYC9_ovEuw/s1600/e149aac5-c64d-440b-a2a3-843ae43019bb.jpeg" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 [1 этаж
 
@@ -31,7 +31,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖЦ "Интурист" - ул. Ростовская 100б](https://can.blagorussia.ru/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-6-v-zhc-inturist-voronezh-ul-rostovskaya-100b.html)98,5570090 0008 869 5003
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiloaLoaxTa4HAIt1WtM_nt5YYBN7Cs9_92PzeKCGqJnEzYXbrR7AB3cOR_sL0nBz90mBLqJTp7gFbzsbwF_2tg_Xb0Aa3PplIvNe1fXBQ0cymoutc4nWJN429TZT-dj45CPZ07HsqOO-fC9UTABrgtbPdDz257qE_oUcbhhJIcKwU3MtNsZ-fHVHgdj40/w400-h400-rw/4o8v66a2zph6udbxqmv207i439uu1hop.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiloaLoaxTa4HAIt1WtM_nt5YYBN7Cs9_92PzeKCGqJnEzYXbrR7AB3cOR_sL0nBz90mBLqJTp7gFbzsbwF_2tg_Xb0Aa3PplIvNe1fXBQ0cymoutc4nWJN429TZT-dj45CPZ07HsqOO-fC9UTABrgtbPdDz257qE_oUcbhhJIcKwU3MtNsZ-fHVHgdj40/s1600/4o8v66a2zph6udbxqmv207i439uu1hop.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -43,7 +43,7 @@ date: 2025-10-01T00:00:00Z
 
 4
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZLFWaej9nU7w51u4Ev0fvi3pc8y-NRDLXTgpdRUFmJzYe5kmA_RS6JPCHq9vIdTR8ZG3FAkk5S-teEXcyocmS3Rpfw_Ga85zhQr8QsKFfYEQsKrG2Gne7mOjbVn4A0RiX6NoiQ6BN5nrzyu9IvcJzHL0M6-E8_Fisiwk3YXOds6yzImPeG6mtXbeb3f0/w400-h400-rw/42rdldk6ici358re3g6xx2c2x4mm30jo.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZLFWaej9nU7w51u4Ev0fvi3pc8y-NRDLXTgpdRUFmJzYe5kmA_RS6JPCHq9vIdTR8ZG3FAkk5S-teEXcyocmS3Rpfw_Ga85zhQr8QsKFfYEQsKrG2Gne7mOjbVn4A0RiX6NoiQ6BN5nrzyu9IvcJzHL0M6-E8_Fisiwk3YXOds6yzImPeG6mtXbeb3f0/s1600/42rdldk6ici358re3g6xx2c2x4mm30jo.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 *[1 этаж
 
@@ -53,7 +53,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Аквамарин" - ул. Артамонова 4д](https://can.blagorussia.ru/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html)96,8255097 0009 491 5405
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjqQZ3MNJ6-QgUz2LxZ-Qcsf4TxUWgZJKzjzq236jGafKQD1EZsXjJkqwdPJFna_5A3U-XY_lUZ9GtgUcaEWxuvprMnSitMIWSSPs0-lw5Dyl1rDl3mBvsxiPfmWflRR6Sl1Zi_HB7siY8ObzGfda9H1bpSKj5NvPMA8allXJl6bJeHYKYJpzIxbQUlSqY/w400-h400-rw/4sfjol8xe3cgkmmi67hoa306glkmlwnp.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjqQZ3MNJ6-QgUz2LxZ-Qcsf4TxUWgZJKzjzq236jGafKQD1EZsXjJkqwdPJFna_5A3U-XY_lUZ9GtgUcaEWxuvprMnSitMIWSSPs0-lw5Dyl1rDl3mBvsxiPfmWflRR6Sl1Zi_HB7siY8ObzGfda9H1bpSKj5NvPMA8allXJl6bJeHYKYJpzIxbQUlSqY/s1600/4sfjol8xe3cgkmmi67hoa306glkmlwnp.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -63,7 +63,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Мандарин" - ул. Саврасова, 8680,69800100 0008 069 0006
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRYBz4VsWqCzuNissGPOg5W6sg7L1INdpkaaS1C6b4l4S3A2gvCw78pswkDIabfeq0qUHYJflGv-KlW_xi4l9_zFkeZ5JCRnGlt7szmXhsA6rn16NtbF9DUpeDAycKyh57gwd-Tp5QVswXSA4f3pALSFS8Ps3V2Xi9Sw7E2AlnYf5wZ518rWbCwppmgCE/w400-h400-rw/v44ho5m8ubdtpf33hoiue39hqstkd70o.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRYBz4VsWqCzuNissGPOg5W6sg7L1INdpkaaS1C6b4l4S3A2gvCw78pswkDIabfeq0qUHYJflGv-KlW_xi4l9_zFkeZ5JCRnGlt7szmXhsA6rn16NtbF9DUpeDAycKyh57gwd-Tp5QVswXSA4f3pALSFS8Ps3V2Xi9Sw7E2AlnYf5wZ518rWbCwppmgCE/s1600/v44ho5m8ubdtpf33hoiue39hqstkd70o.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -73,9 +73,9 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Мандарин" - ул. Саврасова, 86
 
-53.59 850105 0005 626 9507
+53.59 850105 0005 626 9507
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgtG5zpzFIEqM2fh6eRVB4GJyDkcLNKc-2bgPioYItDy0SlsKx7hXp2NmZHIK9ZOe3J3sdJwumXSWwGQGBy2X95Qm9HIKqJGMZ5bOdZ5mZ1ZrJoMOmIdhUmNBGd_WL3u-z7uY_bbB1aoMD1A4m5riseylXsRZuTCVtz0rYduXjMim_OJocz4poOIs8sx0w/w400-h400-rw/ifdsn267oadks4nlm2r8mgzinq1mzclk.webp" alt="Нежилое помещение" title="Нежилое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgtG5zpzFIEqM2fh6eRVB4GJyDkcLNKc-2bgPioYItDy0SlsKx7hXp2NmZHIK9ZOe3J3sdJwumXSWwGQGBy2X95Qm9HIKqJGMZ5bOdZ5mZ1ZrJoMOmIdhUmNBGd_WL3u-z7uY_bbB1aoMD1A4m5riseylXsRZuTCVtz0rYduXjMim_OJocz4poOIs8sx0w/s1600/ifdsn267oadks4nlm2r8mgzinq1mzclk.webp" alt="Нежилое помещение" title="Нежилое помещение">
 
 4 этаж
 
@@ -85,7 +85,7 @@ date: 2025-10-01T00:00:00Z
 
 БЦ "Комсомольский" - ул. Солнечная 7д6,41 563150 000960 0008
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgQbMy8WQFXRsFcjdOqkUetgpihG75kAEwcWzJjAlszddvMC2sephyX5X4rk5cHPB1-RcG97M8Hq3EjxHqxxMjDHaiA_WF5jLWNF7pUxzLH2sgErFPLEhc62h5NEGGv5XTiURL6Lxa5ZcGwc8Vj9Vc7Vfgi2mdKpVcBZzT9N2ZkIsnifNIFKA5XDTD8Yso/w400-h400-rw/w98r7pemznjd02t6yvyv9oxhljfp2vvm.webp" alt="Хозяйственное помещение" title="Хозяйственное помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgQbMy8WQFXRsFcjdOqkUetgpihG75kAEwcWzJjAlszddvMC2sephyX5X4rk5cHPB1-RcG97M8Hq3EjxHqxxMjDHaiA_WF5jLWNF7pUxzLH2sgErFPLEhc62h5NEGGv5XTiURL6Lxa5ZcGwc8Vj9Vc7Vfgi2mdKpVcBZzT9N2ZkIsnifNIFKA5XDTD8Yso/s1600/w98r7pemznjd02t6yvyv9oxhljfp2vvm.webp" alt="Хозяйственное помещение" title="Хозяйственное помещение">
 
 Цоколь
 
@@ -95,11 +95,11 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Галактика 2"
 
-ул. Независимости, д. 78
+ул. Независимости, д. 78
 
 СЕКЦИЯ 1А,1Б, СЕКЦИЯ 2267,1940060 00016 031 4009
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjsnWOtfZJO6cfBu7Eg_aWdyGg78viyhaBj-_mszzCJ9cWTIKaaVC7u3a3JamDUfhtWoVpLoB1zQgCi1XrkbToWm7lqmC19ZGV5rkZKvnQKMoF5jqzFBvb7Pa-UEJUIncKv41NHtkDuRZzttbDe03GhyphenhyphenCmExNXgTgjRL277FapW6hKxliWkgg_LlKAiFQM/w400-h400-rw/4jgij23ndjwa6e886gev6v8a57hvcky5.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjsnWOtfZJO6cfBu7Eg_aWdyGg78viyhaBj-_mszzCJ9cWTIKaaVC7u3a3JamDUfhtWoVpLoB1zQgCi1XrkbToWm7lqmC19ZGV5rkZKvnQKMoF5jqzFBvb7Pa-UEJUIncKv41NHtkDuRZzttbDe03GhyphenhyphenCmExNXgTgjRL277FapW6hKxliWkgg_LlKAiFQM/s1600/4jgij23ndjwa6e886gev6v8a57hvcky5.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -109,7 +109,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "9 Ярдов" - ул. 9 Января, д. 223и681 050120 0008 160 00010
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB5LkKrUZffwpC-V7g1snTuq5vGTa1mTNwb6-xzOoTWqTzRR-DgKYrJkueBu_luz2ccslixkYpt42DFZK50_8UPwAkWR8tGvQMP2fHCHa00ReikxG_NjVvdRvc-jHctsZI4K50hexEgxtR1FZitRN8FoG8ijy0wg72orefKLslI78OBGg3xRtxFUyKN9U/w400-h400-rw/e7b6ibay0ii1szu52036840x6ue1bk3n.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB5LkKrUZffwpC-V7g1snTuq5vGTa1mTNwb6-xzOoTWqTzRR-DgKYrJkueBu_luz2ccslixkYpt42DFZK50_8UPwAkWR8tGvQMP2fHCHa00ReikxG_NjVvdRvc-jHctsZI4K50hexEgxtR1FZitRN8FoG8ijy0wg72orefKLslI78OBGg3xRtxFUyKN9U/s1600/e7b6ibay0ii1szu52036840x6ue1bk3n.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -119,7 +119,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Суворов-Сити" - 121 Стрелковой Дивизии, 958,651 100135 0007 917 75011
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhxlJ9Ipyrn_DTeNjpysZIdWlkPmq7DtOQhlga7c0NjqtSyuHfod1z9rMU8sSl88HqOW7DsdsYyEHXNaCOTlITJH73zqhIbn5YZsdJAa5KAi9Rot_D3KVaKtPQKqTZP3aPC2XJuGM9N3r4aBbwd0jG1MI5TPqeR7FV6JgmOfugj2ZHncP9I-H5oozY0PKw/w400-h400-rw/ejp282isv1dmw7f4b0kn0c43i1xvq9zo.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhxlJ9Ipyrn_DTeNjpysZIdWlkPmq7DtOQhlga7c0NjqtSyuHfod1z9rMU8sSl88HqOW7DsdsYyEHXNaCOTlITJH73zqhIbn5YZsdJAa5KAi9Rot_D3KVaKtPQKqTZP3aPC2XJuGM9N3r4aBbwd0jG1MI5TPqeR7FV6JgmOfugj2ZHncP9I-H5oozY0PKw/s1600/ejp282isv1dmw7f4b0kn0c43i1xvq9zo.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -139,7 +139,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Суворов-Сити" - 121 Стрелковой Дивизии, 9105,421 200144 00015 180 48013
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgS-p4JCciXFDuGEjyIsVvNiUK_zqHZLWrxX6jOKBCiWCU3bkH7Z2Vev6pH2La2kywPvFQc5CMo1HwqeMtUWbVrKMA4xEWjY5J_L5wixP5bFrQART1Ne0O50Q2mchbyMgvBxkSVk4a_WhgJ53zzDEpT1iYUI8Nbn3hUcZ6vyGVsjOTDelBKdi6LlbXBkY4/w400-h400-rw/ztswsp3he55bhpy6opqsu9tsnnbqteqw.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgS-p4JCciXFDuGEjyIsVvNiUK_zqHZLWrxX6jOKBCiWCU3bkH7Z2Vev6pH2La2kywPvFQc5CMo1HwqeMtUWbVrKMA4xEWjY5J_L5wixP5bFrQART1Ne0O50Q2mchbyMgvBxkSVk4a_WhgJ53zzDEpT1iYUI8Nbn3hUcZ6vyGVsjOTDelBKdi6LlbXBkY4/s1600/ztswsp3he55bhpy6opqsu9tsnnbqteqw.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -149,7 +149,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Суворов-Сити" - 121 Стрелковой Дивизии, 958,731 100139 5008 192 83514
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgHBIVUV5ijfcfb-3rMErCE2lX1X9_WjnHs87uvoOeMn_Co7OQ-an8CLtb-B5P0tvrEbOQBermkOAuAJ_uTdEHY_7-bGeccC0UrrkI-554M-GpCPicSjgQhw9yQoU733xZEnaMsLAsPK8zLlJx6vwMOlX_Yb6RkvdHUtCyyz_tlnxqajxr_Z9BTIjgAdg/w400-h399-rw/z9g8n1hurvquf8za6xq0f4z3q40drbyf.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgHBIVUV5ijfcfb-3rMErCE2lX1X9_WjnHs87uvoOeMn_Co7OQ-an8CLtb-B5P0tvrEbOQBermkOAuAJ_uTdEHY_7-bGeccC0UrrkI-554M-GpCPicSjgQhw9yQoU733xZEnaMsLAsPK8zLlJx6vwMOlX_Yb6RkvdHUtCyyz_tlnxqajxr_Z9BTIjgAdg/s1600/z9g8n1hurvquf8za6xq0f4z3q40drbyf.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -159,7 +159,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Суворов-Сити" - 121 Стрелковой Дивизии, 947,771 100135 0006 448 95015
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZsStTpxtYZBERG6pzlKvkqs6FgIYSrzVwbZjW0PucQ3CJPhhKHzWyRFFcR00rPFru2S3D-U-xowtIYI_N7poRsOO1qCAcY5vUZFqQi-yRGklXlrJ15WvtPN4ZFL_d46jQF2pTZ2vpa_PWUza5xXPknR9Lq69Bq4NQi2WqnB-MHf_ZwXqyrcMir52eIIU/w400-h400-rw/bgp8wjw2eosnghrvpnkbgc1vv2u70byf.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZsStTpxtYZBERG6pzlKvkqs6FgIYSrzVwbZjW0PucQ3CJPhhKHzWyRFFcR00rPFru2S3D-U-xowtIYI_N7poRsOO1qCAcY5vUZFqQi-yRGklXlrJ15WvtPN4ZFL_d46jQF2pTZ2vpa_PWUza5xXPknR9Lq69Bq4NQi2WqnB-MHf_ZwXqyrcMir52eIIU/s1600/bgp8wjw2eosnghrvpnkbgc1vv2u70byf.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -169,7 +169,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Суворов-Сити" - 121 Стрелковой Дивизии, 995,621 150139 50013 338 99016
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeugAHxrKYtMex-2N5fdlr8oLymHkXlRvhHv1PIZMeStCkoHENHnvDwGbM-whEI8uLy0fPfDXi_WLd7IIIJvopY9ZGh_IqAp74vXpzcKF3xKS9uw4-7MnCvJdzyvYg0RrN3LSCY093_wxmUw3l25UD-zJk6NWA9ckEXRopGP0YNYcG61Xk_3hv0oqeRPo/w400-h400-rw/f261y1pv984gz7ga82r70mo97p3nsvws.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeugAHxrKYtMex-2N5fdlr8oLymHkXlRvhHv1PIZMeStCkoHENHnvDwGbM-whEI8uLy0fPfDXi_WLd7IIIJvopY9ZGh_IqAp74vXpzcKF3xKS9uw4-7MnCvJdzyvYg0RrN3LSCY093_wxmUw3l25UD-zJk6NWA9ckEXRopGP0YNYcG61Xk_3hv0oqeRPo/s1600/f261y1pv984gz7ga82r70mo97p3nsvws.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -179,7 +179,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Суворов-Сити" - 121 Стрелковой Дивизии, 966,721 200135 0009 007 20017
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5OACbZ3cJdvLypTep3L2gtXrzQFrEORPa7ZuUum_X7hNI3IH_xqWUTfa8MHCMAT_1JNcVrVmOBjPs63XRJEzR-CfLjSY1Zt1dS2C3oCzJqPlxCu48FQP0mwy4pWZWDdHBsbHvtuk5H5cZvJnu7WDCCGS8hBoHaFBBSWcAbFTOd9cwrLx9z-sG1ttn86w/w400-h400-rw/tgo28mma38ns1hmhldkwhwti9juea26k.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj5OACbZ3cJdvLypTep3L2gtXrzQFrEORPa7ZuUum_X7hNI3IH_xqWUTfa8MHCMAT_1JNcVrVmOBjPs63XRJEzR-CfLjSY1Zt1dS2C3oCzJqPlxCu48FQP0mwy4pWZWDdHBsbHvtuk5H5cZvJnu7WDCCGS8hBoHaFBBSWcAbFTOd9cwrLx9z-sG1ttn86w/s1600/tgo28mma38ns1hmhldkwhwti9juea26k.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -189,7 +189,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Гагаринский-2" - ул. Колесниченко, 6763,311 050136 0008 610 16018
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjiopH8Drz7FC2IhMjrB4n9y8yfr7HrJOQdGkTwEYG7mtRT5NKVS5iqjtr2CNm22Xfs8tC2XDgVE9BScxnnyVekU65RtovWZBgIgrDdzbtg79MSHE8BMwpSUpJK208c5yR28QmDdopM0yD-7fkFsxJWBHJX01PNa_51H4FVcSTSkHd-HGLezwVRu75zNi4/w400-h400-rw/5i9kxydyly0m2le83vezlsx868ky2jjp.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjiopH8Drz7FC2IhMjrB4n9y8yfr7HrJOQdGkTwEYG7mtRT5NKVS5iqjtr2CNm22Xfs8tC2XDgVE9BScxnnyVekU65RtovWZBgIgrDdzbtg79MSHE8BMwpSUpJK208c5yR28QmDdopM0yD-7fkFsxJWBHJX01PNa_51H4FVcSTSkHd-HGLezwVRu75zNi4/s1600/5i9kxydyly0m2le83vezlsx868ky2jjp.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -201,7 +201,7 @@ date: 2025-10-01T00:00:00Z
 
 38,11 200136 0005 181 60019
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjycawujGSn3C7yhojNKfaAELyvpc0Q-9hYIJLS_sE7GIKgjnuB8qo73GFK2U1n3p2yv-p1enFE_0ihPZn1gjWYYYWSXG4KXb3ggEXae96Z7HEBqPH8vd8Ps8hWHw5a7nv4FUT8JniHeBTmYisaq_XGSDFm8yHl28qRBgqsWvjM1ZApCKixSJz3JolC9DA/w400-h400-rw/Plan.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjycawujGSn3C7yhojNKfaAELyvpc0Q-9hYIJLS_sE7GIKgjnuB8qo73GFK2U1n3p2yv-p1enFE_0ihPZn1gjWYYYWSXG4KXb3ggEXae96Z7HEBqPH8vd8Ps8hWHw5a7nv4FUT8JniHeBTmYisaq_XGSDFm8yHl28qRBgqsWvjM1ZApCKixSJz3JolC9DA/s1600/Plan.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -211,7 +211,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Гагаринский-2" - ул. Колесниченко, 6781,311 050136 00011 058 16020
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4yC_PLaISg8YpP4Gv9daeg5IAhaQqBbOE8S5NTy-cDtRSaibHhj2J2xWGaQwDsRtvCkPA0qckRnITpwE5nTPAqRstlo2ILdO7ZRT6pkC8oL_L5YL6A9NQ2mnEeKYNOGIlpWgq1wWxtywA0XUoNENDKZSPuE3GIs1P3EuExisM28rDxlKopOjTbhQIAwA/w400-h400-rw/hojhqxq3zccuoxifo7vwlm9zih9vlsa3.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4yC_PLaISg8YpP4Gv9daeg5IAhaQqBbOE8S5NTy-cDtRSaibHhj2J2xWGaQwDsRtvCkPA0qckRnITpwE5nTPAqRstlo2ILdO7ZRT6pkC8oL_L5YL6A9NQ2mnEeKYNOGIlpWgq1wWxtywA0XUoNENDKZSPuE3GIs1P3EuExisM28rDxlKopOjTbhQIAwA/s1600/hojhqxq3zccuoxifo7vwlm9zih9vlsa3.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -221,7 +221,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Гагаринский-2" - ул. Колесниченко, 6765,331 050136 0008 884 88021
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1Nati2zCdLcHv1XcfBRHC60p73i8leK6V91fggSryezQtLMCWL3Psdpi5UTPidndexLQYXHVJMOx5m_AzauHg0LMbRAK3H2B4CIG_Il4Kf6Tg9_J_6lOPN2FLpTA6aJf1Hap8xnARNsUPJW0PdNJU098iefrHxCAiA9AMj-89btDnSVlshgFTH0uikSs/w400-h400-rw/nfpg0g98udryafyadrk0d4quodxyzplf.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1Nati2zCdLcHv1XcfBRHC60p73i8leK6V91fggSryezQtLMCWL3Psdpi5UTPidndexLQYXHVJMOx5m_AzauHg0LMbRAK3H2B4CIG_Il4Kf6Tg9_J_6lOPN2FLpTA6aJf1Hap8xnARNsUPJW0PdNJU098iefrHxCAiA9AMj-89btDnSVlshgFTH0uikSs/s1600/nfpg0g98udryafyadrk0d4quodxyzplf.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -231,7 +231,7 @@ date: 2025-10-01T00:00:00Z
 
 Дом Офицеров - ул. Краснознаменная 109/130,311 100150 0004 546 50022
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh22yer9AVjLitbeC5ISfMLGQHPdvWKeqEBlCUTtWcpyGKsP9MBakiAdRNJECr0ChOJBrrV-RbeHO6-QmBKGuwsTsMUNfsUVNszmZqL0we3I3aEzyQG2NQ4zWyFuMqyLoN1P6rQHwi5Ys30tJRvrRXHpKn1pdUoSsN2xR9GLCFzixZNFaKDmA2Nfz62iF0/w400-h400-rw/pgop7ghtstz0pzj9k9ws3tivssf1ci0u.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh22yer9AVjLitbeC5ISfMLGQHPdvWKeqEBlCUTtWcpyGKsP9MBakiAdRNJECr0ChOJBrrV-RbeHO6-QmBKGuwsTsMUNfsUVNszmZqL0we3I3aEzyQG2NQ4zWyFuMqyLoN1P6rQHwi5Ys30tJRvrRXHpKn1pdUoSsN2xR9GLCFzixZNFaKDmA2Nfz62iF0/s1600/pgop7ghtstz0pzj9k9ws3tivssf1ci0u.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -241,7 +241,7 @@ date: 2025-10-01T00:00:00Z
 
 Дом Офицеров - ул. Краснознаменная 109/123,491 200136 0003 194 64023
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEid2BEPxDy63qxzP-YQxH5IsN3PDIOkU87Fr0SM2bawyO6KHeLcGCQpnXCaf8S-cq2n2vxL1dVMe-okmOwBo3l6fwKXrw_RRmPbClGDlPRLL0raNnoT7twML9mh662tqJsM2cI18-MpZh3CDQmQq3QTRV1VUhYD47KW4_PSp2gC__prOmoU8sDx17Zckkg/w400-h400-rw/jerlmw67r0csr0lbq2aagjcxap0r312z.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEid2BEPxDy63qxzP-YQxH5IsN3PDIOkU87Fr0SM2bawyO6KHeLcGCQpnXCaf8S-cq2n2vxL1dVMe-okmOwBo3l6fwKXrw_RRmPbClGDlPRLL0raNnoT7twML9mh662tqJsM2cI18-MpZh3CDQmQq3QTRV1VUhYD47KW4_PSp2gC__prOmoU8sDx17Zckkg/s1600/jerlmw67r0csr0lbq2aagjcxap0r312z.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -381,7 +381,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК "Молодежный" - ул. Теплоэнергетиков,1726,69900120 0003 202 80037
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTepb1_bc25bKTsdU2hiOJvu5FxiF48sAOlqLkPBxIQls69V36J33fEDVrbyGgCACQGElnkDLDrzivwGYoRSixCdy1M8ROvNGm5kJUgwjg1x4g3BXVckOEaZeJdLtkazOaYVTWbxXQ2TT6u-luy-VaiSzINAkhGp_9L3tQhqZvDBKZwyfZyZ4HRDFxWw0/w400-h400-rw/pbbgdny7tyxepgpjpttryqvf0i8ic1xj.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTepb1_bc25bKTsdU2hiOJvu5FxiF48sAOlqLkPBxIQls69V36J33fEDVrbyGgCACQGElnkDLDrzivwGYoRSixCdy1M8ROvNGm5kJUgwjg1x4g3BXVckOEaZeJdLtkazOaYVTWbxXQ2TT6u-luy-VaiSzINAkhGp_9L3tQhqZvDBKZwyfZyZ4HRDFxWw0/s1600/pbbgdny7tyxepgpjpttryqvf0i8ic1xj.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -431,7 +431,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖД "Октябрьский" - ул. Ворошилова 63/248,23900140 2506 764 25842
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-RvYLbikSh2b-NWTUkZjEbqHUEijliI6wtgqbisis_1UDJRVvuucYuZJVjslOg_tsVbSXPcgTpOZk71j6P6nPtQnNwwEo0aULlDLtMq6EORvuuC8Asovhx9QzHaa5Ezpf72npqYgyvuzEfMH-vAAwevFj6HwqPXqUYOzAsSOICv13bsYswApOUhH6b6o/w400-h400-rw/krz1b6irplq7srcw942p95bzmebg9ly1.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-RvYLbikSh2b-NWTUkZjEbqHUEijliI6wtgqbisis_1UDJRVvuucYuZJVjslOg_tsVbSXPcgTpOZk71j6P6nPtQnNwwEo0aULlDLtMq6EORvuuC8Asovhx9QzHaa5Ezpf72npqYgyvuzEfMH-vAAwevFj6HwqPXqUYOzAsSOICv13bsYswApOUhH6b6o/s1600/krz1b6irplq7srcw942p95bzmebg9ly1.webp" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 1 этаж
 
@@ -543,7 +543,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК бизнес-класса PROMETHEUS - ул. Средне-Московская, 60](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html)137,132 000300 00041 139 00053
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw_TY273Ikp-EzUKGDuKBi9VMOgZSS5zFdL0bH-4sWLUCas7vPVPQ00WBcFw9Qn2ec2QhYpj65VYIYyzHz1YhBTHoaek7N6R-WlA_qJVz4SNm8TRRT78aXCkAjgbx9LPnep20HygY-uwRMHd5kYtGKhf1LGsuEZJ801hFFA9J-Ve-615FKl7Xbv8V33fo/w350-h400-rw/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-7.jpg" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw_TY273Ikp-EzUKGDuKBi9VMOgZSS5zFdL0bH-4sWLUCas7vPVPQ00WBcFw9Qn2ec2QhYpj65VYIYyzHz1YhBTHoaek7N6R-WlA_qJVz4SNm8TRRT78aXCkAjgbx9LPnep20HygY-uwRMHd5kYtGKhf1LGsuEZJ801hFFA9J-Ve-615FKl7Xbv8V33fo/s1600/%D0%9A%D0%BE%D0%BC%D0%BC%D0%B5%D1%80%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5_%D0%BF%D1%80%D0%B5%D0%B4%D0%BB%D0%BE%D0%B6%D0%B5%D0%BD%D0%B8%D0%B5_%D0%9F%D0%A0%D0%9E%D0%9C%D0%95%D0%A2%D0%95%D0%99_1-%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%B8%D1%8F-7.jpg" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 [1 этаж
 
@@ -555,7 +555,7 @@ date: 2025-10-01T00:00:00Z
 
 ЖК бизнес-класса PROMETHEUS - ул. Средне-Московская, 60](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html)2782 000300 00080 406 200
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgnxnU_3sy18ITvThgNKTtnEn1L5l30uX8m2oLZAIB2Lk8Q-6Fwisib2lfOnbKmj8foKsbvtnNnlfhZLSk9vkv_cqfj4T6mNkOFjXdb6fw3dFu4f08QO_ObBfV0vdZ1073Ljk9IHBiECCOWR04O5wqOtGwSbArKwG2u1wg6QuJ0aRfXY5o6Lsgy_ImQHQ/w216-h400-rw/%D0%9E%D0%B1%D1%8A%D0%B5%D0%B4%D0%B8%D0%BD%D0%BA%D0%BD%D0%BD%D0%BE%D0%B5%20%D0%BF%D0%BE%D0%BC%D0%B5%D1%89%D0%B5%D0%BD%D0%B8%D0%B5.jpg" alt="Коммерческое помещение" title="Коммерческое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgnxnU_3sy18ITvThgNKTtnEn1L5l30uX8m2oLZAIB2Lk8Q-6Fwisib2lfOnbKmj8foKsbvtnNnlfhZLSk9vkv_cqfj4T6mNkOFjXdb6fw3dFu4f08QO_ObBfV0vdZ1073Ljk9IHBiECCOWR04O5wqOtGwSbArKwG2u1wg6QuJ0aRfXY5o6Lsgy_ImQHQ/s1600/%D0%9E%D0%B1%D1%8A%D0%B5%D0%B4%D0%B8%D0%BD%D0%BA%D0%BD%D0%BD%D0%BE%D0%B5%20%D0%BF%D0%BE%D0%BC%D0%B5%D1%89%D0%B5%D0%BD%D0%B8%D0%B5.jpg" alt="Коммерческое помещение" title="Коммерческое помещение">
 
 ### Воронежская область
 
@@ -567,7 +567,7 @@ date: 2025-10-01T00:00:00Z
 
 Нежилое помещение
 
-Хохольский район пос. ОПТ ВНИИК ул. Чаянова 1 
+Хохольский район пос. ОПТ ВНИИК ул. Чаянова 1 
 
 (возможна перепланировка)2731 500--
 
@@ -591,7 +591,7 @@ date: 2025-10-01T00:00:00Z
 
 4
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/w400-h229-rw/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s1600/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
 
 *1 этаж
 
@@ -601,7 +601,7 @@ date: 2025-10-01T00:00:00Z
 
 5
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/w400-h229-rw/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s1600/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
 
 *1 этаж
 
@@ -611,7 +611,7 @@ date: 2025-10-01T00:00:00Z
 
 6
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/w400-h229-rw/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s1600/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
 
 *1 этаж
 
@@ -621,7 +621,7 @@ date: 2025-10-01T00:00:00Z
 
 7
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/w400-h229-rw/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s1600/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
 
 *1 этаж
 
@@ -631,12 +631,12 @@ date: 2025-10-01T00:00:00Z
 
 Дополнительные данные по этим объектам и другим (не публикуемых в открытом доступе) предоставляются:
 
-* -  после верификации клиента;
+* -  после верификации клиента;
 
 ** - после заключения [Соглашения о сотрудничестве](https://can.blagorussia.ru/2025/10/soglashenie-o-sotrudnichestve-po-podboru-kommercheskoj-nedvizhimosti.html);
 
 *** - после заключения агентского договора.
 
-Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
+Для получения дополнительной информации позвоните по телефону **8 (920) 469-69-50** или напишите внизу в комментариях или по этим **[КОНТАКТАМ](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html).**
 
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/w400-h229-rw/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5a89v1ZmQS0Hk1_j6P5hfYw5dQrBlEK3gNruRC77FI4xGolsbitiRcfBxHdKUY9aTZc5nEzxjUMTg2dO-gHlpzUUeoyU-On04eY-dQyhJpstdTAkNOWMfPiKZS_NoGI16hhVP6fcdbeJnT5vFg0sv_y8FwlD84hVu8aMbShBryE0-KAvM-DZXIiVkeOw/s1600/%D0%9B%D0%B0%D1%82%D0%BD%D0%B0%D1%8F%20%D1%83%D0%BB.%20%D0%9B%D0%B5%D0%BD%D0%B8%D0%BD%D0%B0%2097%D0%B0.jpg" alt="Нежилое помещение" title="Нежилое помещение">

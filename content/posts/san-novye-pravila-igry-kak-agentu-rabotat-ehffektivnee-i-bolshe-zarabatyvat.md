@@ -5,7 +5,7 @@ aliases:
 url: "/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat/"
 date: 2026-07-01T00:00:00Z
 ---
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzCeZUKG_kWrLFxULUntf8EF_eSrHe0i9BdQaE_xiztXePIwDlyzTwmEo7hnrb0Jw_7rxVPXW7E8rjTnp3Q-QWZYf3n5KsAwXC8W4a2FWUb25WUXtjrDBmyHzBqG_DdwIxBJvgx&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwI2V6IC9oiK6NtlqSPDopfQHhM457OsqQmJbHkmTF6eG7NnMtaKqhgKhh3cm6KXYsRp_m5jFynWXl0NQJ_CRQ8bb0fNSriVI_mpeIJTg5xldtqoeiJUJoKiI1X-nToqtCDFQ&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 Проект [САН (Сообщество Агентов Недвижимости)](https://can.blagorussia.ru/) превращается из обычного сайта в **профессиональную среду**, где всё устроено для удобства и защиты интересов агента. Платформа переходит на международные стандарты работы Мультилистинговой системы (MLS), но делает это просто и понятно для каждого участника.
 
@@ -13,7 +13,7 @@ date: 2026-07-01T00:00:00Z
 
 **Присоединяйтесь к САН на этапе -1 бесплатно! Начните пользоваться технологиями будущего уже сегодня: [Информация для контакта](https://can.blagorussia.ru/2025/05/kontakty-san-soobshchestvo-agentov-nedvizhimosti.html)**
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWa1t7G3IfYbiRYkXwd_Kj2S-b-FUn6TtvY9dfRqhVnu6n8a4H9UTlyDvk6gh6kl9-EGBfSmDoVQAOmwtU1mHBEZ1auprvdtzW74mH9njzQ8kP7Zv3mJkCj6FpMQiFzOeaAZ3eG4ZW-llRbtPS6qaxCmxJKtXJ_LRV_opguGRUPJdiIZYxTXVQ5QWn1kA/w640-h358-rw/SAN_SUMKa_Meta_Architecture_-_Slide_2.png" alt="Карта сквозных потоков данных: от листингов агентов недвижимости до медийных площадок" title="Карта сквозных потоков данных: от листингов агентов недвижимости до медийных площадок"><figcaption>Карта сквозных потоков данных: от листингов агентов недвижимости до медийных площадок</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWa1t7G3IfYbiRYkXwd_Kj2S-b-FUn6TtvY9dfRqhVnu6n8a4H9UTlyDvk6gh6kl9-EGBfSmDoVQAOmwtU1mHBEZ1auprvdtzW74mH9njzQ8kP7Zv3mJkCj6FpMQiFzOeaAZ3eG4ZW-llRbtPS6qaxCmxJKtXJ_LRV_opguGRUPJdiIZYxTXVQ5QWn1kA/s1600/SAN_SUMKa_Meta_Architecture_-_Slide_2.png" alt="Карта сквозных потоков данных: от листингов агентов недвижимости до медийных площадок" title="Карта сквозных потоков данных: от листингов агентов недвижимости до медийных площадок"><figcaption>Карта сквозных потоков данных: от листингов агентов недвижимости до медийных площадок</figcaption></figure>
 
 #### Путь развития: Что получает агент на каждом шаге?
 

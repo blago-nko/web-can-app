@@ -5,7 +5,7 @@ aliases:
 url: "/s-novym-2026-godom/"
 date: 2025-12-01T00:00:00Z
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi3BQtU-ziGO-kKEbpB4npfUHa4X9XwGdEAL3GN4qWFC_8ybKV3XeoO5EtsnPKwhKsHFlXvb3eu3L3PzpbqHXbae54O__At9Uy-NdN9aEp0oLKwOGnzLFkD2qieASKjpIrUwzzLtPd7tvDV0KitYSsLafXfJhBd7iRfC0pHf4-TBQl-eUINRxNsX6pIhw/w640-h640-rw/unnamed.jpg" alt="С Новым 2026 годом!" title="С Новым 2026 годом!"><figcaption>С Новым 2026 годом!</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhi3BQtU-ziGO-kKEbpB4npfUHa4X9XwGdEAL3GN4qWFC_8ybKV3XeoO5EtsnPKwhKsHFlXvb3eu3L3PzpbqHXbae54O__At9Uy-NdN9aEp0oLKwOGnzLFkD2qieASKjpIrUwzzLtPd7tvDV0KitYSsLafXfJhBd7iRfC0pHf4-TBQl-eUINRxNsX6pIhw/s1600/unnamed.jpg" alt="С Новым 2026 годом!" title="С Новым 2026 годом!"><figcaption>С Новым 2026 годом!</figcaption></figure>
 
 ## 🎄 С Новым 2026 годом, коллеги и партнеры!
 

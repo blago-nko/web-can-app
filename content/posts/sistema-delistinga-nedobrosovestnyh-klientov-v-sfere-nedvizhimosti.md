@@ -5,7 +5,7 @@ aliases:
 url: "/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti/"
 date: 2025-06-01T00:00:00Z
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEge-yg2eS7YY8CusWPR7Pv2xm5va5RuLvDBV4HTSoqoRPkwZMINu_4mRly0gS9dGUqMDdE6NnvlmZAkouG4Apk3eNno9uuWWHqu0FMzxSSlprDgVHROQkZvFhQtUoY-A35bLYeFc-SyYUVW1TjD-YxMK_OUUbL6qMSaPvOoLoUCzx-piIQWb3It96TqMNc/w640-h366-rw/5f0b921b4e0f11f0816a1226d3ec0cb9_1.jpg" alt="Делистинг" title="Делистинг"><figcaption>Делистинг</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEge-yg2eS7YY8CusWPR7Pv2xm5va5RuLvDBV4HTSoqoRPkwZMINu_4mRly0gS9dGUqMDdE6NnvlmZAkouG4Apk3eNno9uuWWHqu0FMzxSSlprDgVHROQkZvFhQtUoY-A35bLYeFc-SyYUVW1TjD-YxMK_OUUbL6qMSaPvOoLoUCzx-piIQWb3It96TqMNc/s1600/5f0b921b4e0f11f0816a1226d3ec0cb9_1.jpg" alt="Делистинг" title="Делистинг"><figcaption>Делистинг</figcaption></figure>
 
 ## Что такое делистинг клиентов
 

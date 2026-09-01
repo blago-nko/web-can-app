@@ -5,7 +5,7 @@ aliases:
 url: "/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti/"
 date: 2025-08-01T00:00:00Z
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghn0mAXxcGThi66yNt-801NS6rLGEkhY-M6X7SJaHS88Vk1NjxYexGC1DZsyS7-E2B-7R2s5LzWLlCmxlZSxkn7FBwQFKLmoEFdfwJxbfaML5eomeYQIsinRpS9R3uJhmxxPh5K-v3jwUtuGuuLKQQ_Zveq6Bkdd9CGNiT2R3jLycdq8_xPL1MkJ02LTY/w640-h366-rw/34949b696fe711f0bd404218a4e1299f_1.jpg" alt="Кодекс профессиональной этики" title="Кодекс профессиональной этики"><figcaption>Кодекс профессиональной этики</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghn0mAXxcGThi66yNt-801NS6rLGEkhY-M6X7SJaHS88Vk1NjxYexGC1DZsyS7-E2B-7R2s5LzWLlCmxlZSxkn7FBwQFKLmoEFdfwJxbfaML5eomeYQIsinRpS9R3uJhmxxPh5K-v3jwUtuGuuLKQQ_Zveq6Bkdd9CGNiT2R3jLycdq8_xPL1MkJ02LTY/s1600/34949b696fe711f0bd404218a4e1299f_1.jpg" alt="Кодекс профессиональной этики" title="Кодекс профессиональной этики"><figcaption>Кодекс профессиональной этики</figcaption></figure>
 
 ### Преамбула
 
@@ -97,7 +97,7 @@ date: 2025-08-01T00:00:00Z
 
 - [Качественно оформлять страницы на сайте САН](https://can.blagorussia.ru/2025/05/pravila-kachestvennogo-oformleniya-stranic-riehltora-na-sajte-san.html)
 
-4.3. **Авторское право**
+4.3. **Авторское право**
 
 - Не использовать чужие тексты, фотографии или базы данных без разрешения.
 

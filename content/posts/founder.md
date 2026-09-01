@@ -5,7 +5,7 @@ aliases:
 url: "/founder/"
 date: 2026-07-01T00:00:00Z
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgK6s8f5mh2yA8xPzjpprhTjR2tGtPuKWCwZ7yxkoITWGiOg1SDq_ECr0euqmyyjmEB0Ko0tPvgIYLt_ya7o4AuxfLmzS3FzJNRpkPHnwod5BJ5HqUR1VPXpJxZeeWvAmHmjZMOkTxHDeRNSz9jbUakxoUCefjwdyz3zhY9uHdgY2p0UQiA-48aPxCNfu8/w428-h640-rw/image-2019-12-15%2012_13_49.jpg" alt="Бобров Александр Валентинович - администратор проекта САН" title="Бобров Александр Валентинович - администратор проекта САН"><figcaption>Бобров Александр Валентинович - администратор проекта САН</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgK6s8f5mh2yA8xPzjpprhTjR2tGtPuKWCwZ7yxkoITWGiOg1SDq_ECr0euqmyyjmEB0Ko0tPvgIYLt_ya7o4AuxfLmzS3FzJNRpkPHnwod5BJ5HqUR1VPXpJxZeeWvAmHmjZMOkTxHDeRNSz9jbUakxoUCefjwdyz3zhY9uHdgY2p0UQiA-48aPxCNfu8/s1600/image-2019-12-15%2012_13_49.jpg" alt="Бобров Александр Валентинович - администратор проекта САН" title="Бобров Александр Валентинович - администратор проекта САН"><figcaption>Бобров Александр Валентинович - администратор проекта САН</figcaption></figure>
 
 Бобров Александр Валентинович - **администратор проекта САН** осуществляет функции **операционного управления** и развития некоммерческого профессионального сообщества участников рынка недвижимости.
 
@@ -37,7 +37,7 @@ date: 2026-07-01T00:00:00Z
 
 4. Администрирование экосистемы
 
-Управление сквозными сервисами: СУМКа (дистрибуция контента), Видео-Матрица,  Image Storage.
+Управление сквозными сервисами: СУМКа (дистрибуция контента), Видео-Матрица,  Image Storage.
 
 Контроль качества контента и соблюдения стандартов SEO/GEO-оптимизации.
 
@@ -53,7 +53,7 @@ date: 2026-07-01T00:00:00Z
 
 Руководитель [бесплатной интернет-школы](https://moisites.blagorussia.ru/) — организация обучения навыкам создания и администрирования сайтов.
 
-Государственная (более 10 лет) и банковская служба  — опыт управления проектами, бюджетами и организационными структурами.
+Государственная (более 10 лет) и банковская служба  — опыт управления проектами, бюджетами и организационными структурами.
 
 Председатель Общественного совета Департамента по государственному регулированию тарифов Воронежской области (2021–2023) — современная практика взаимодействия с государственными органами.
 
@@ -61,7 +61,7 @@ date: 2026-07-01T00:00:00Z
 
 В своей работе администратор САН опирается на следующие основные инструменты и подходы экосистемы:
 
-Адаптерная архитектура — все внешние интеграции  реализованы через TypeScript-интерфейсы для полной независимости от вендоров.
+Адаптерная архитектура — все внешние интеграции  реализованы через TypeScript-интерфейсы для полной независимости от вендоров.
 
 Эволюционная модель хранения — изображения хранятся в безлимитых хранилищах, PDF и медиа-паспорта — в Cloudflare R2.
 
@@ -101,4 +101,4 @@ Email: blagorussia@yandex.ru
 
 📚 Автор-эксперт — [nasa-istoria.blagorussia.ru/2022/01/bobrov-aleksandr-valentinovich-biografiya.html](https://nasa-istoria.blagorussia.ru/2022/01/bobrov-aleksandr-valentinovich-biografiya.html)
 
-🏠 Администратор САН — [can.blagorussia.ru/2026/07/founder.html](https://can.blagorussia.ru/2026/07/founder.html)
+🏠 Администратор САН — [can.blagorussia.ru/2026/07/founder.html](https://can.blagorussia.ru/2026/07/founder.html)
