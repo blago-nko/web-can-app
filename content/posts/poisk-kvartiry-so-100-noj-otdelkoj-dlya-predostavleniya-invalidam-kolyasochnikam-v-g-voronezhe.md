@@ -7,7 +7,7 @@ date: 2026-03-01T00:00:00Z
 ---
 ### 
 
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEif1St3IARxEkjL7h8SDCFX72x0Wv8RjQGcr1qRRG2hMMOKwXTXx-vMzoTPZL3-wE7Vgqwzot_cs_V_NDTFF9BM-OtPMjxcf3YrKZFdiNclM0pbOQqq7kwb7hIoZaOL4Aej-rPoskXWiUsAN-9dW1tp9Fa-1lwwjh8apqRSsolK9Lm3mfNFkCtG5UQ5WII/w640-h330-rw/32589f47247b11f1aeacb286fe4f4b5a.jfif" alt="Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам." title="Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам."><figcaption>Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам.</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEif1St3IARxEkjL7h8SDCFX72x0Wv8RjQGcr1qRRG2hMMOKwXTXx-vMzoTPZL3-wE7Vgqwzot_cs_V_NDTFF9BM-OtPMjxcf3YrKZFdiNclM0pbOQqq7kwb7hIoZaOL4Aej-rPoskXWiUsAN-9dW1tp9Fa-1lwwjh8apqRSsolK9Lm3mfNFkCtG5UQ5WII/s1600/32589f47247b11f1aeacb286fe4f4b5a.jfif" alt="Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам." title="Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам."><figcaption>Ищем новое готовое жилое помещение (квартиру) со 100%-ной отделкой для предоставления инвалидам‑колясочникам.</figcaption></figure>
 
 Основные требования к объекту
 
@@ -113,7 +113,7 @@ date: 2026-03-01T00:00:00Z
 
 Проектная документация должна быть разработана в соответствии со следующими нормативными актами:
 
-- СП 54.13330.2022 «Свод правил. Здания жилые многоквартирные. 
+- СП 54.13330.2022 «Свод правил. Здания жилые многоквартирные. 
 
 - СНиП 31-01-2003» (утверждён приказом Минстроя России от 13.05.2022 № 361/пр);
 
