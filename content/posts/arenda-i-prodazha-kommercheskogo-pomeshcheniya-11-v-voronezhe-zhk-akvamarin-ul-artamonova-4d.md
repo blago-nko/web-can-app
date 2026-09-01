@@ -171,13 +171,13 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzMy6ovz8-KT2q7OdFUIOPs-lgyeZ0apckhLeaL7yymXVANaV3i8WsIgLVzgeH6jO7d_P3jY8W33QcjIOa2l8UoutaVtK6kAYFyl1rQzBZaiuhVMAynLW1_2xscfR9pOES3KQI&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzJHBFccUEl13MDgdeKyQPzkGD2Nv1yQihBhhx2Gl47ts-Y4-52byJEp1ikbhR6is4DNSXzWh8pxFkH0HuXOS9ng1n31JMKNLizGIFRNEir77Nv4b5s-WSMmXaYJYiy8MGW-qY&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dx2C6G9jTVjB_Uvlf0_WcwcOFSuPGloAbdsxRnXJVvw25XwVtm-tzCtEFl-DUgAHkW62wOVIdpeyYy-z3s0uD_CM3-OlnxwULJNJuxM5zq6NLvOx5W4kPkOb1IF001ueGV-rcU&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxYNnLc0eo709ri-r4dlfzJhW31DsMghuS8vsJdC4yQouJz6-b91bJ-txwmUasQszMM4Ahh5XShMquy6NIOfuKWziIVArMizzrFT20M6s3uciF33kJLtLLTOj0bZUiDk3AlP9s8&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dz7kO8_LBLdv6dSH6eg2NkF5tFUopkut9lYzeOhK9Rpx7yhlKfMiWrwIzoJVHbHxLQlSSNeobLOdVbuqWqWux3FXTtxY82DD22u9AqPi_Vxa_APyQ4rdscc80nAKrGQaM6pRzzk&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzXdJiO4BV819Wf7EBcyyVzkOAoZQlZwGZbhFcG07H09fs_KhvqqsaRY7qbjnSc-buRh4hId4SLhLj1NSrXfR1YnKG8s1S0l8Lx7-uuknowVlfbCSXkpw5Ey1vuc6YrL7DQNBvE&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwOFIF20WvgPaeJCfaPkk8su__a7p5zlTYUPBBmdiyi_peyfOZhoOLu2R6rw_NBy8T8X2RfkPbOyMDbLBRa8nHSzvUug4Al694GUtOy6hpwxLzsdVN4gObwY9uy3uFOCRlZLzNZ&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dznJuyYnvYfNwPzjmA7U60UBegC0BlnN0yMbnlHui0RF3cVYaqDPmrU04DzWeKuwHcvTViG3c2rY08eVhE27XmcW4VkW38LDHmL1L6GUBSANzeCzi8s0xwmGLLFno7fbV_nmHlF&origin=can.blagorussia.ru" width="640" height="480" style="border:0"></iframe>
 
 ### Контакты для связи:
 
