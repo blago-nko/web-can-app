@@ -257,32 +257,6 @@ date: 2025-10-01T00:00:00Z
 
 ### 9. АДРЕСА, РЕКВИЗИТЫ И ПОДПИСИ СТОРОН
 
-САНКлиентНекоммерческое партнерство «Общественное благополучие Воронежа»
-
-адрес: 394030, Россия, Воронежская область, г. Воронеж, ул. Карла Маркса д. 94 оф. 22
-
-Телефон: 8 (920) 469-69-50
-
-Email: BlagoRussia@yandex.ru
-
-ОГРН: 1053600001256
-
-ИНН: 3666119759
-
-КПП: 366601001
-
-[Название Организации-Арендатора/Покупателя/ФИО]
-
-Адрес: [Адрес Клиента]
-
-Телефон: [Телефон Клиента]
-
-Email: [Email Клиента]
-
-ОГРН/Паспорт: [ОГРН ЮЛ или Паспорт ФЛ]
-
-ИНН: [ИНН Клиента]
-
-КПП (если ЮЛ): [КПП Клиента]
+<table border="1" class="tftable" style="text-align: center;"><tbody><tr><th>САН</th><th>Клиент</th></tr><tr><td style="text-align: center;"><div style="text-align: left;">Некоммерческое партнерство «Общественное благополучие Воронежа»</div><div style="text-align: left;">адрес: 394030, Россия, Воронежская область, г. Воронеж, ул. Карла Маркса д. 94 оф. 22</div><div style="text-align: left;">Телефон: 8 (920) 469-69-50</div><div style="text-align: left;">Email: BlagoRussia@yandex.ru</div><div style="text-align: left;">ОГРН: 1053600001256</div><div style="text-align: left;">ИНН: 3666119759</div><div style="text-align: left;">КПП: 366601001</div></td><td><div style="text-align: left;">[Название Организации-Арендатора/Покупателя/ФИО]</div><div style="text-align: left;">Адрес: [Адрес Клиента]</div><div style="text-align: left;">Телефон: [Телефон Клиента]</div><div style="text-align: left;">Email: [Email Клиента]</div><div style="text-align: left;">ОГРН/Паспорт: [ОГРН ЮЛ или Паспорт ФЛ]</div><div style="text-align: left;">ИНН: [ИНН Клиента]</div><div style="text-align: left;">КПП (если ЮЛ): [КПП Клиента]</div></td></tr></tbody></table>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjIxeabhRd3VmLQ3zcgzGk1DPbu69r6OD86joPgNVmdoxTD5a_3r_ri5HWdFO5HEU_gWJzl_5jwPaBFvkJvVqmai6Jy7w2H3FfnKs_eHBap8cdQSILONFOsYL7L7irz5Qp7fsnsrqC8jjT176zUP_7F7i5m2kII0738gZV0A5TXbuFUWvUfbcF8_fNc01Y/s1600/%D0%A1%D0%90%D0%9D.jpeg" alt="Соглашение о сотрудничестве по подбору коммерческой недвижимости" title="Соглашение о сотрудничестве по подбору коммерческой недвижимости"><figcaption>Соглашение о сотрудничестве по подбору коммерческой недвижимости</figcaption></figure>
