@@ -1,5 +1,5 @@
 ---
-title: "'Поиск квартиры со 100%-ной отделкой для предоставления инвалидам‑колясочникам в г. Воронеже'"
+title: "Поиск квартиры со 100%-ной отделкой для предоставления инвалидам‑колясочникам в г. Воронеже"
 aliases:
   - "/2026/03/poisk-kvartiry-so-100-noj-otdelkoj-dlya-predostavleniya-invalidam-kolyasochnikam-v-g-voronezhe.html"
 url: "/poisk-kvartiry-so-100-noj-otdelkoj-dlya-predostavleniya-invalidam-kolyasochnikam-v-g-voronezhe/"

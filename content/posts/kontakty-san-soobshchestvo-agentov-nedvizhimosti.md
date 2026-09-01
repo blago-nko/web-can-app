@@ -1,5 +1,5 @@
 ---
-title: "'Контакты САН - сообщество агентов недвижимости'"
+title: "Контакты САН - сообщество агентов недвижимости"
 aliases:
   - "/2025/05/kontakty-san-soobshchestvo-agentov-nedvizhimosti.html"
 url: "/kontakty-san-soobshchestvo-agentov-nedvizhimosti/"
@@ -19,44 +19,26 @@ Email: [BlagoRussia@yandex.ru](mailto:BlagoRussia@yandex.ru)
 
 Социальные сети:
 
-Сайт: [can.blagorussia.ru](https://can.blagorussia.ru/)
+Сайт: [<img src="https://favicon.yandex.net/favicon/v2/can.blagorussia.ru/?size=32&stub=1" alt="can.blagorussia.ru" title="can.blagorussia.ru" style="display:inline-block;vertical-align:middle;margin:0">can.blagorussia.ru](https://can.blagorussia.ru/)
 
-<img src="https://favicon.yandex.net/favicon/v2/can.blagorussia.ru/?size=32&stub=1" alt="can.blagorussia.ru" title="can.blagorussia.ru">
+ВКонтакте: [<img src="https://favicon.yandex.net/favicon/v2/vk.com/?size=32&stub=1" alt="vk.com" title="vk.com" style="display:inline-block;vertical-align:middle;margin:0">vk.com/sanbirzha](http://vk.com/sanbirzha)
 
-ВКонтакте: [vk.com/sanbirzha](http://vk.com/sanbirzha)
+Группа Google: [<img src="https://favicon.yandex.net/favicon/v2/groups.google.com/?size=32&stub=1" alt="groups.google.com" title="groups.google.com" style="display:inline-block;vertical-align:middle;margin:0">groups.google.com/g/canblagorussiaru](http://groups.google.com/g/canblagorussiaru)
 
-<img src="https://favicon.yandex.net/favicon/v2/vk.com/?size=32&stub=1" alt="vk.com" title="vk.com">
+Дзен: [<img src="https://favicon.yandex.net/favicon/v2/dzen.ru/?size=32&stub=1" alt="dzen.ru" title="dzen.ru" style="display:inline-block;vertical-align:middle;margin:0">dzen.ru/can.blagorussia.ru](http://dzen.ru/can.blagorussia.ru)
 
-Группа Google: [groups.google.com/g/canblagorussiaru](http://groups.google.com/g/canblagorussiaru)
+Одноклассники: [<img src="https://favicon.yandex.net/favicon/v2/ok.ru/?size=32&stub=1" alt="ok.ru" title="ok.ru" style="display:inline-block;vertical-align:middle;margin:0">ok.ru/group/70000037901614](http://ok.ru/group/70000037901614)
 
-<img src="https://favicon.yandex.net/favicon/v2/groups.google.com/?size=32&stub=1" alt="groups.google.com" title="groups.google.com">
+Pinterest: [<img src="https://favicon.yandex.net/favicon/v2/www.pinterest.com/?size=32&stub=1" alt="www.pinterest.com" title="www.pinterest.com" style="display:inline-block;vertical-align:middle;margin:0">www.pinterest.com/Sanbirzha](http://www.pinterest.com/Sanbirzha)
 
-Дзен: [dzen.ru/can.blagorussia.ru](http://dzen.ru/can.blagorussia.ru)
+Whatsapp: [<img src="https://favicon.yandex.net/favicon/v2/chat.whatsapp.com/?size=32&stub=1" alt="chat.whatsapp.com" title="chat.whatsapp.com" style="display:inline-block;vertical-align:middle;margin:0">chat.whatsapp.com/JJomBTkHPThFHpMBOhgThV](https://chat.whatsapp.com/JJomBTkHPThFHpMBOhgThV)
 
-<img src="https://favicon.yandex.net/favicon/v2/dzen.ru/?size=32&stub=1" alt="dzen.ru" title="dzen.ru">
+Telegram-канал:[<img src="https://favicon.yandex.net/favicon/v2/t.me/?size=32&stub=1" alt="t.me" title="t.me" style="display:inline-block;vertical-align:middle;margin:0">t.me/sanblago](https://t.me/sanblago)
 
-Одноклассники: [ok.ru/group/70000037901614](http://ok.ru/group/70000037901614)
-
-<img src="https://favicon.yandex.net/favicon/v2/ok.ru/?size=32&stub=1" alt="ok.ru" title="ok.ru">
-
-Pinterest: [www.pinterest.com/Sanbirzha](http://www.pinterest.com/Sanbirzha)
-
-<img src="https://favicon.yandex.net/favicon/v2/www.pinterest.com/?size=32&stub=1" alt="www.pinterest.com" title="www.pinterest.com">
-
-Whatsapp: [chat.whatsapp.com/JJomBTkHPThFHpMBOhgThV](https://chat.whatsapp.com/JJomBTkHPThFHpMBOhgThV)
-
-<img src="https://favicon.yandex.net/favicon/v2/chat.whatsapp.com/?size=32&stub=1" alt="chat.whatsapp.com" title="chat.whatsapp.com">
-
-Telegram-канал:[t.me/sanblago](https://t.me/sanblago)
-
-<img src="https://favicon.yandex.net/favicon/v2/t.me/?size=32&stub=1" alt="t.me" title="t.me">
-
-Telegram-группа: [t.me/canblago](http://t.me/canblago)
+Telegram-группа: [<img src="https://favicon.yandex.net/favicon/v2/t.me/?size=32&stub=1" alt="t.me" title="t.me" style="display:inline-block;vertical-align:middle;margin:0">t.me/canblago](http://t.me/canblago)
 
 - Яндекс Бизнес: [san-soobschestvo-agentov.clients.site](http://san-soobschestvo-agentov.clients.site)
 
 - Форма обратной связи: откройте нажав на **[ССЫЛКУ**](https://partnerstvo.blagorussia.ru/2020/03/napisite-nam.html)
-
-<img src="https://favicon.yandex.net/favicon/v2/t.me/?size=32&stub=1" alt="t.me" title="t.me">
 
 Мы всегда рады услышать от Вас и ответить на интересующие вопросы. Желаем Вам приятного общения и надеемся на долгосрочное сотрудничество!

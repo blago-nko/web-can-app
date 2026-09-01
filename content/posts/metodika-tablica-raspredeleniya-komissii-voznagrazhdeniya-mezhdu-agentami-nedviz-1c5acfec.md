@@ -1,5 +1,5 @@
 ---
-title: "'Методика (таблица) распределения комиссии (вознаграждения) между агентами недвижимости САН при совместных сделках и передаче клиентов/объектов'"
+title: "Методика (таблица) распределения комиссии (вознаграждения) между агентами недвижимости САН при совместных сделках и передаче клиентов/объектов"
 aliases:
   - "/2025/10/metodika-tablica-raspredeleniya-komissii-voznagrazhdeniya-mezhdu-agentami-nedvizhimosti-san-pri-sovmestnyh-sdelkah-i-peredache-klientov-obektov.html"
 url: "/metodika-tablica-raspredeleniya-komissii-voznagrazhdeniya-mezhdu-agentami-nedvizhimosti-san-pri-sovmestnyh-sdelkah-i-peredache-klientov-obektov/"
