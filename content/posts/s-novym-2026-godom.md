@@ -1,5 +1,5 @@
 ---
-title: '''С Новым 2026 годом!'''
+title: "'С Новым 2026 годом!'"
 aliases:
   - "/2025/12/s-novym-2026-godom.html"
 url: "/s-novym-2026-godom/"
@@ -17,7 +17,7 @@ date: 2025-12-01T00:00:00Z
 
 За этот короткий срок мы вместе с вами превратили идею в работающий инструмент:
 
-- **Успешный старт**: Мы запустили САН как платформу, объединившую профессионалов, готовых работать по принципам доверия и **[MLS-модели](https://can.blagorussia.ru/2025/11/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam.html)**.
+- **Успешный старт**: Мы запустили САН как платформу, объединившую профессионалов, готовых работать по принципам доверия и [**MLS-модели**](https://can.blagorussia.ru/2025/11/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam.html).
 
 - **Автоматизация и охват**: Мы внедрили ** единую базу объектов с системой автоматического размещения на крупных информационных площадках**. Теперь агентам САН не нужно тратить время на ручной перенос данных — ваши объекты транслируются на ведущие ресурсы страны и мира автоматически.
 

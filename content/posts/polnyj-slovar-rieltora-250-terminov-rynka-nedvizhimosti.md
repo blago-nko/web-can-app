@@ -1,5 +1,5 @@
 ---
-title: '''Полный словарь риелтора: 250+ терминов рынка недвижимости'''
+title: "'Полный словарь риелтора: 250+ терминов рынка недвижимости'"
 aliases:
   - "/2025/09/polnyj-slovar-rieltora-250-terminov-rynka-nedvizhimosti.html"
 url: "/polnyj-slovar-rieltora-250-terminov-rynka-nedvizhimosti/"

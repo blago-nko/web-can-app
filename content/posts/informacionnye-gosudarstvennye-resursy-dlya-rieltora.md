@@ -1,5 +1,5 @@
 ---
-title: '''Информационные государственные ресурсы для риэлтора'''
+title: "'Информационные государственные ресурсы для риэлтора'"
 aliases:
   - "/2025/04/informacionnye-gosudarstvennye-resursy-dlya-rieltora.html"
 url: "/informacionnye-gosudarstvennye-resursy-dlya-rieltora/"

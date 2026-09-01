@@ -1,5 +1,5 @@
 ---
-title: '''Заявление агента по недвижимости об участии в САН - сообществе агентов недвижимости'''
+title: "'Заявление агента по недвижимости об участии в САН - сообществе агентов недвижимости'"
 aliases:
   - "/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html"
 url: "/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti/"

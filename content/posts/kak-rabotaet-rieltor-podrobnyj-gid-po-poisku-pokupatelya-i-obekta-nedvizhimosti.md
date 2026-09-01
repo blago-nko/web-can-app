@@ -1,5 +1,5 @@
 ---
-title: '''Как работает риелтор? Подробный гид по поиску покупателя и объекта недвижимости'''
+title: "'Как работает риелтор? Подробный гид по поиску покупателя и объекта недвижимости'"
 aliases:
   - "/2025/09/kak-rabotaet-rieltor-podrobnyj-gid-po-poisku-pokupatelya-i-obekta-nedvizhimosti.html"
 url: "/kak-rabotaet-rieltor-podrobnyj-gid-po-poisku-pokupatelya-i-obekta-nedvizhimosti/"
