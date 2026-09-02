@@ -11,65 +11,65 @@ date: 2025-10-01T00:00:00Z
 
 #### Объект:
 
-- **Жилой комплекс:** «Чайка»
+- **Жилой комплекс:**«Чайка»
 
 - **Район**: Северный
 
 - **Адрес**: Воронеж, ул. Хользунова, 99б
 
-- **Тип дома:** Многоэтажный многоквартирный жилой дом, 20 этажей, 476 квартир.
+- **Тип дома:**Многоэтажный многоквартирный жилой дом, 20 этажей, 476 квартир.
 
-- **Площадь квартир:** 17,842.4 м2
+- **Площадь квартир:**17,842.4 м2
 
-- **Ввод в эксплуатацию:** 10.10.2018
+- **Ввод в эксплуатацию:**10.10.2018
 
 #### Характеристики помещения
 
-- **Расположение:** 1-й этаж, 1-я и 2-я секции.
+- **Расположение:**1-й этаж, 1-я и 2-я секции.
 
-- **Общая площадь:** 1503,9 м2.
+- **Общая площадь:**1503,9 м2.
 
-- **Состояние:** Без отделки.
+- **Состояние:**Без отделки.
 
-- **Планировка:** Свободная (возможен демонтаж/монтаж перегородок).
+- **Планировка:**Свободная (возможен демонтаж/монтаж перегородок).
 
-- **Высота потолков:** 2.8 м.
+- **Высота потолков:**2.8 м.
 
-- **Остекление:** Витражное, 15 окон, выходящих во двор. На окнах установлены рольставни.
+- **Остекление:**Витражное, 15 окон, выходящих во двор. На окнах установлены рольставни.
 
-- **Дверные проемы:** 1 вход для разгрузки, 2 металлические двери и 15 стеклянных дверей в проемах витражных окон, все выходят во двор.
+- **Дверные проемы:**1 вход для разгрузки, 2 металлические двери и 15 стеклянных дверей в проемах витражных окон, все выходят во двор.
 
 #### Технические и строительные детали:
 
-- **Кадастровый номер земельного участка:** 36:34:0205001:6
+- **Кадастровый номер земельного участка:**36:34:0205001:6
 
-- **Материал стен:** Бетон.
+- **Материал стен:**Бетон.
 
-- **Материал перегородок:** Кирпич (есть возможность перепланировки).
+- **Материал перегородок:**Кирпич (есть возможность перепланировки).
 
-- **Материал перекрытий потолка и пола:** Бетон.
+- **Материал перекрытий потолка и пола:**Бетон.
 
-- **Отделка потолка:** Покраска.
+- **Отделка потолка:**Покраска.
 
-- **Покрытие пола:** Бетон.
+- **Покрытие пола:**Бетон.
 
 #### Инженерные сети:
 
-- **Электричество:** Мощность 15 кВт⋅ч. с возможностью увеличения
+- **Электричество:**Мощность 15 кВт⋅ч. с возможностью увеличения
 
-- **Вода/Канализация:** Подключение горячей и холодной воды и канализации на сололифт.
+- **Вода/Канализация:**Подключение горячей и холодной воды и канализации на сололифт.
 
 - **Отопление**: Есть выходы под отопление.
 
-- **Вентиляция:** Приточно-вытяжная система.
+- **Вентиляция:**Приточно-вытяжная система.
 
-- **Кондиционирование:** Предусмотрены места для установки кондиционеров.
+- **Кондиционирование:**Предусмотрены места для установки кондиционеров.
 
-- **Связь:** Есть возможность подключения кабельного интернета и стационарного телефона.
+- **Связь:**Есть возможность подключения кабельного интернета и стационарного телефона.
 
 - **Освещение**: Внутреннее и внешнее.
 
-- **Погрузочная зона:** Имеется отдельная, специально оборудованная зона для разгрузки товаров.
+- **Погрузочная зона:**Имеется отдельная, специально оборудованная зона для разгрузки товаров.
 
 - **Наружная реклама**: Есть возможность размещения наружной вывески и консоли.
 
@@ -81,21 +81,21 @@ date: 2025-10-01T00:00:00Z
 
 - **Соседство**: Непосредственно рядом с домом проживает более 1500 человек.
 
-- **Транспортная доступность:** Автобусная остановка с тремя маршрутами расположена всего в 300 метрах.
+- **Транспортная доступность:**Автобусная остановка с тремя маршрутами расположена всего в 300 метрах.
 
 - **Парковка**: Парковочные места доступны непосредственно около помещения и с другой стороны здания. Есть удобный автомобильный подъезд для разгрузки и парковки.
 
-- **Зонирование территории:** Преимущественно многоэтажный спальный район и жилой сектор.
+- **Зонирование территории:**Преимущественно многоэтажный спальный район и жилой сектор.
 
-#### **Ближайшие объекты:** 
+#### **Ближайшие объекты:**
 
 В пределах нескольких кварталов находятся:
 
-- **Образовательные учреждения:** Спортивная школа №26, Детская школа искусств №7, Детский сад №62, Детский сад №135, Средняя школа №87, Гимназия №10.
+- **Образовательные учреждения:**Спортивная школа №26, Детская школа искусств №7, Детский сад №62, Детский сад №135, Средняя школа №87, Гимназия №10.
 
-- **Коммерческие объекты:** Аптеки, универсамы, магазины розничной торговли, Сбербанк, АЗС.
+- **Коммерческие объекты:**Аптеки, универсамы, магазины розничной торговли, Сбербанк, АЗС.
 
-- **Инфраструктура для отдыха:** Развлекательные заведения, детские площадки, заведения общественного питания.
+- **Инфраструктура для отдыха:**Развлекательные заведения, детские площадки, заведения общественного питания.
 
 - **Прилегающая территория**: Тротуар, замощенный плиткой.
 
@@ -105,11 +105,11 @@ date: 2025-10-01T00:00:00Z
 
 - **Продажа**: 43 885,9 руб. за м²
 
-- **Общая стоимость:** 66 000 000руб.
+- **Общая стоимость:**66 000 000руб.
 
-- **Аренда:** 350 руб. за м² в месяц
+- **Аренда:**350 руб. за м² в месяц
 
-- **Общая стоимость:** 526 365 руб. в месяц.
+- **Общая стоимость:**526 365 руб. в месяц.
 
 - Предусмотрены строительные каникулы до 3 месяцев.
 
@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dy-pA3oN0rW0ZmHWlNVC6Omz2axPsizxA30nJ-acJbNXfpw68wmk_aoQySUx3KD9MwHVVM0syJQKnDALIQYSOwPqYeGqml2kxTR-2xVc6z2wlk9BP0nAwiZzAVGgfyPRoRwYJ50&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxYNeQwxWWl6IoMbt6Ir-9eJKHXTfeX5zQC62OI9V3y0OANZpS0eyYecL5mVg_P5VdVzRRG4oXbi2UrneQYRlnBRJzQPzygkxCmlFSzMZpKkfsHevJCOtG9PZalTTxXc4acntc&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzywiepgg7Tp6titHmustOm9QJKOLrWOo9dysFQgkO-aj9rhBlc3JUBb_eQSehOL-UKAGjaSFeWmMw91dqK-xVy0WJun3snlrERU-q2UX5GND0Jrik0XDvszh55y2mBXTyE7-Q&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dx9_G7Ej-k4v_8kIloZ2lHK-pywTeI5PwtCNvkEbEBkmowj3HGSWAD3Yo-FDspoXT3uJyV3iJd3aB1paADiXH44SlZM-6QukuY1jp6dBOrgCHRzojdNSiOJex8Ev8xq_XjSBe5E&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyBTzfRUKqN4Vgyyt44GTJDP9e3DXdHBGiJZWIZMrzfPWAEPsImEvoewhS6RUTJ1pKsS-CRgJe5ILm-pn0cGqAJqi5UfY73qNXZ24jgRMDjBOiblF1CKILr7b_JCiKE7HHvwt6O&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzYi55P8QNVbrHno_PcM1RbO2Uu07frDEtxNibXxDZ8Wok2-G9Y0NuN7vD7aGVPpEIxzVCOr7VjL0LQL3LXyvBmj9Sq4b0SipMfDLvewTy2vjBQZ2Hc8flxKZbJ-pjdChPsGgM&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwS4xl_3GHEMfpuen3jfQGELiGhhtoHT1JuEDwPrilhkqtbM2guk0zZUySn5kU6Wl5ETflVGHA2k4d1hQEhkCjnYq96grLmin5MP4p5SpTD3seookm4TVroqxPBqYoe9eqOBg&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzt6HXr-26ojcC94TOTIeMAyvjpxUwBvzVDNk7TvnfmsbCcaOVy-Q837a_5lJjC-itisq1d3Qgci1tIPUUBJuIcOogcCxXdPcpoVZqGmM59WZpoabOGKwM2EHsyycmc6W2NZxI&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
