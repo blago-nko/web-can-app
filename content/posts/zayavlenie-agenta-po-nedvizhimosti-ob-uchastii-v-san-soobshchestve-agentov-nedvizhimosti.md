@@ -20,5 +20,3 @@ date: 2025-04-01T00:00:00Z
 И конечно важно соблюдать [Кодекс профессиональной этики участников САН](https://can.blagorussia.ru/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html), иначе агент может быть исключён из проекта «САН».
 
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLSdWD1Tb7PTyWaezQiXrw9XRor7c3eSj2WRblC5Vr0QlFafqVg/viewform?embedded=true" width="640" height="480" style="border:0"></iframe>
-
-Загрузка&#8230;

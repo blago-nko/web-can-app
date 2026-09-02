@@ -17,7 +17,7 @@ date: 2025-12-01T00:00:00Z
 
 За этот короткий срок мы вместе с вами превратили идею в работающий инструмент:
 
-- **Успешный старт**: Мы запустили САН как платформу, объединившую профессионалов, готовых работать по принципам доверия и[**MLS-модели**](https://can.blagorussia.ru/2025/11/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam.html).
+- **Успешный старт**: Мы запустили САН как платформу, объединившую профессионалов, готовых работать по принципам доверия и [**MLS-модели**](https://can.blagorussia.ru/2025/11/garantirovannoe-partnerstvo-mls-model-v-ramkah-san-soobshchestvo-agentov-nedvizhimosti-put-k-ehffektivnym-sovmestnym-sdelkam.html).
 
 - **Автоматизация и охват**: Мы внедрили** единую базу объектов с системой автоматического размещения на крупных информационных площадках**. Теперь агентам САН не нужно тратить время на ручной перенос данных — ваши объекты транслируются на ведущие ресурсы страны и мира автоматически.
 
@@ -25,7 +25,7 @@ date: 2025-12-01T00:00:00Z
 
 - **Стандарты качества**: Был принят [Кодекс этики](https://can.blagorussia.ru/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html) и внедрена прозрачная [методика распределения комиссии](https://can.blagorussia.ru/2025/10/metodika-tablica-raspredeleniya-komissii-voznagrazhdeniya-mezhdu-agentami-nedvizhimosti-san-pri-sovmestnyh-sdelkah-i-peredache-klientov-obektov.html), что сделало партнерские сделки внутри сообщества нормой, а не исключением.
 
-- **Защита интересов:**[Система делистинга](https://can.blagorussia.ru/2025/06/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti.html) помогла нам сохранить базу «чистой», а бесплатное размещение на сайте САН дало агентам независимость от ценовой политики агрегаторов.
+- **Защита интересов:[**Система делистинга**](https://can.blagorussia.ru/2025/06/sistema-delistinga-nedobrosovestnyh-klientov-v-sfere-nedvizhimosti.html) помогла нам сохранить базу «чистой», а бесплатное размещение на сайте САН дало агентам независимость от ценовой политики агрегаторов.
 
 #### 🌟 Планы на 2026 год:
 

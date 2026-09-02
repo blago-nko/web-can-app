@@ -55,7 +55,7 @@ date: 2025-05-01T00:00:00Z
 
 - Помощь в сборе и получении документов, технической и иной документации, необходимой при проведении сделки.Вы можете посмотреть  
 
-- **[актуальные запросы** клиентов от агента на аренду и покупку коммерческой недвижимости](https://can.blagorussia.ru/2025/05/predlozheniya-po-dolgosrochnoj-kommercheskoj-arende-pokupke-nezhilyh-pomeshchenij-i-zemelnyh-uchastkov-v-voronezhskoj-oblasti-ot-agenta-po-nedvizhimosti-bobrova-aleksandra-valentinovicha.html) - 10 заявок;
+- [**актуальные запросы** клиентов от агента на аренду и покупку коммерческой недвижимости**](https://can.blagorussia.ru/2025/05/predlozheniya-po-dolgosrochnoj-kommercheskoj-arende-pokupke-nezhilyh-pomeshchenij-i-zemelnyh-uchastkov-v-voronezhskoj-oblasti-ot-agenta-po-nedvizhimosti-bobrova-aleksandra-valentinovicha.html) - 10 заявок;
 
 - [предлагаемые объекты недвижимости для аренды и покупки](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html) - 50 объектов в открытом доступе.
 
