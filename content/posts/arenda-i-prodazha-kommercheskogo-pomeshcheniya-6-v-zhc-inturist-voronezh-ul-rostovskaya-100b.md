@@ -169,25 +169,25 @@ date: 2025-11-01T00:00:00Z
 
 #### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyi7wyD_R9G_TqxNaETJpBrmHqKSZbrQCxsSvjtixuK-7fXq9Lw08dumZRTJnT26Ng2IuSlL7lflsYBnQPEdoVUe1cfy-7TgxFmYQigkI6lGozO28krJnoNahLc55ZFocf-dhrq)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dyzOse3KcNZzkG0JT3e2B2HaoGp5AZTrofG6LLOetzCSqgMfJrLOtQ6AaThC0RDkrWgCxWeSGNcvbXviD6KTzBmTAWshQPpUtNMUZnEgxizFHZgqTUFW7caBkhEY_3B3FRnbM4)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dyi7wyD_R9G_TqxNaETJpBrmHqKSZbrQCxsSvjtixuK-7fXq9Lw08dumZRTJnT26Ng2IuSlL7lflsYBnQPEdoVUe1cfy-7TgxFmYQigkI6lGozO28krJnoNahLc55ZFocf-dhrq)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dyzOse3KcNZzkG0JT3e2B2HaoGp5AZTrofG6LLOetzCSqgMfJrLOtQ6AaThC0RDkrWgCxWeSGNcvbXviD6KTzBmTAWshQPpUtNMUZnEgxizFHZgqTUFW7caBkhEY_3B3FRnbM4)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwC8JKRaHX2elmpUYRTah1Q_Is8s4h1ngXCtUmHfMHgQ8T4bPmGAqApbKDYfloJOcCHoHadspGRHdw8rv-NQuFoxpLzEU8yAoz9LIynh0pAQBgownTICMK23Gh0Hhdl1Amo2Ola)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzV9cPVYDSB4c4X9gqRQ-TTlYqVydYPs-4tskwIRLYnrzYHhFy0kpvIBrY9AypcDI5Ck-Ou9U_JsiC0doH6qB1lxDP0FVk-OjN0OCjCmoO2KXrkxs9o5jN0hFcW9oL9bLNqZa56)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwC8JKRaHX2elmpUYRTah1Q_Is8s4h1ngXCtUmHfMHgQ8T4bPmGAqApbKDYfloJOcCHoHadspGRHdw8rv-NQuFoxpLzEU8yAoz9LIynh0pAQBgownTICMK23Gh0Hhdl1Amo2Ola)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzV9cPVYDSB4c4X9gqRQ-TTlYqVydYPs-4tskwIRLYnrzYHhFy0kpvIBrY9AypcDI5Ck-Ou9U_JsiC0doH6qB1lxDP0FVk-OjN0OCjCmoO2KXrkxs9o5jN0hFcW9oL9bLNqZa56)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dymd6Ec6eQL5KRcWqv1YKbbhDcdyrfG8NG8NxrMr4w3EnElAAzhKbi3eSCSM94APPcJGskl5UbMnu3e7ANc7cDiHM173I5EkWaTSkJ-h0cCxXNeJrGsyS_wg_BUy6wP91VkorE)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwBaTdRwx-cVI327CrzaX5S0xV8dduvukXAgp-RLW526AnC2Nwrfn6eMawZJubBrhrPLqngPQWUveO8OaSQGEuQIRlBo8OKED-Ha7lnSd3IS2W1RYrNTq18f3YkkvchUNc3Efc)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dymd6Ec6eQL5KRcWqv1YKbbhDcdyrfG8NG8NxrMr4w3EnElAAzhKbi3eSCSM94APPcJGskl5UbMnu3e7ANc7cDiHM173I5EkWaTSkJ-h0cCxXNeJrGsyS_wg_BUy6wP91VkorE)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwBaTdRwx-cVI327CrzaX5S0xV8dduvukXAgp-RLW526AnC2Nwrfn6eMawZJubBrhrPLqngPQWUveO8OaSQGEuQIRlBo8OKED-Ha7lnSd3IS2W1RYrNTq18f3YkkvchUNc3Efc)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy015b0gsq2Rsjtzh6PhnFo6J6VHkG9IEXN7sp5-v1EoZljwiqKUhG1OgwjTTPcD8S9hMc_ARzRMj1TsJYK-XmAPzgTLlc5u-gCJxORx_8_C9sxKyV-MesDJt7Fo52DsiCj4L0)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz8uvuNW1uUc-KUMhzq0zYuXBHN3ygmGrr8le3HH5slim_oZb8LQYanK7vxXfTzUqzi5sz8DzVFDJdMGJF_cn-Gti6E04JvOUkZBueDh9GEbASY0pboXLFNHBo0w662Zz8BhaNd)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dy015b0gsq2Rsjtzh6PhnFo6J6VHkG9IEXN7sp5-v1EoZljwiqKUhG1OgwjTTPcD8S9hMc_ARzRMj1TsJYK-XmAPzgTLlc5u-gCJxORx_8_C9sxKyV-MesDJt7Fo52DsiCj4L0)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz8uvuNW1uUc-KUMhzq0zYuXBHN3ygmGrr8le3HH5slim_oZb8LQYanK7vxXfTzUqzi5sz8DzVFDJdMGJF_cn-Gti6E04JvOUkZBueDh9GEbASY0pboXLFNHBo0w662Zz8BhaNd)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwgLQ1VWOuhzpxGrZ4wjqeFA5z00tXeUtEwYFRUts4GqxBg7ajNY2rd8l9aarQ6auzDoQUpsHuxoct3aa6BN2-cO4mgFCwSvg7fq_DCZmpMMppkXVChYHAGI3upEDALL4OnepY)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzOFGpHYb4KLahslCQOpV1dQaETaaq5iQWx4UV2NJLcpVSDdymiDPG2jI0zWyCvOzse30GyqcARvQgOHC1kfIeQ04FSGYKh-LqynRvY5e7j5VW4AACDTtscmuZv-xpnoslD5Sk)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwgLQ1VWOuhzpxGrZ4wjqeFA5z00tXeUtEwYFRUts4GqxBg7ajNY2rd8l9aarQ6auzDoQUpsHuxoct3aa6BN2-cO4mgFCwSvg7fq_DCZmpMMppkXVChYHAGI3upEDALL4OnepY)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzOFGpHYb4KLahslCQOpV1dQaETaaq5iQWx4UV2NJLcpVSDdymiDPG2jI0zWyCvOzse30GyqcARvQgOHC1kfIeQ04FSGYKh-LqynRvY5e7j5VW4AACDTtscmuZv-xpnoslD5Sk)
 
 ### Контакты для связи:
 

@@ -5,9 +5,9 @@ aliases:
 url: "/san-novye-pravila-igry-kak-agentu-rabotat-ehffektivnee-i-bolshe-zarabatyvat/"
 date: 2026-07-01T00:00:00Z
 ---
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz2LQuDgakXZQTC0oM_Gz-JpWA3SyYWpZlV6m2ak2zIYnT__1BLdSW7qPv8-38bUo6_eGFpGte6-KQQ0Saj5Hoal-qDPaixW8O3S_v-Z_OoNQsDwx4-0EEzgXABnuz0px1-Vtam)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy-MAMG0jyLWw5z25pGe9wSAejmOk_NnXvnz2phj-D-D4UzUqNcuzgY1wrnsnPxLXomtsQZyWhiopV8rKbPWTeT_572425ftqRV4jS0pfC51ySNEgNZsZNoPmVfc006y7MynCA)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz2LQuDgakXZQTC0oM_Gz-JpWA3SyYWpZlV6m2ak2zIYnT__1BLdSW7qPv8-38bUo6_eGFpGte6-KQQ0Saj5Hoal-qDPaixW8O3S_v-Z_OoNQsDwx4-0EEzgXABnuz0px1-Vtam)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dy-MAMG0jyLWw5z25pGe9wSAejmOk_NnXvnz2phj-D-D4UzUqNcuzgY1wrnsnPxLXomtsQZyWhiopV8rKbPWTeT_572425ftqRV4jS0pfC51ySNEgNZsZNoPmVfc006y7MynCA)
 
 Проект [САН (Сообщество Агентов Недвижимости)](https://can.blagorussia.ru/) превращается из обычного сайта в **профессиональную среду**, где всё устроено для удобства и защиты интересов агента. Платформа переходит на международные стандарты работы Мультилистинговой системы (MLS), но делает это просто и понятно для каждого участника.
 

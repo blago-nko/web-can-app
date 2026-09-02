@@ -141,21 +141,21 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwg54OCUpexHe0SoNOS_iq32W3a2o4n5ku0Fg4uzoPAHLoFPPvrgkvSTJ3YQhQ5rJr9cafw8QbI2ABU5lYTt5QnPPVK8Vi0-pB60LrsZq9cpVITnSJ_T7Tk6AuScAtm_s7Kb7I)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw5WITW7HhywYmIf47xYO9Y5KDM0iMCnf-Kd3wy4goXegAJA0lWGAYfVOdKrasH6vHEvlwfdyY5i9ZTuLIS2D3WIazZWIPPQeJ-DApbPWZE2mYCogTfCdhuvvsvVIGyXrlU6Vxr)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwg54OCUpexHe0SoNOS_iq32W3a2o4n5ku0Fg4uzoPAHLoFPPvrgkvSTJ3YQhQ5rJr9cafw8QbI2ABU5lYTt5QnPPVK8Vi0-pB60LrsZq9cpVITnSJ_T7Tk6AuScAtm_s7Kb7I)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dw5WITW7HhywYmIf47xYO9Y5KDM0iMCnf-Kd3wy4goXegAJA0lWGAYfVOdKrasH6vHEvlwfdyY5i9ZTuLIS2D3WIazZWIPPQeJ-DApbPWZE2mYCogTfCdhuvvsvVIGyXrlU6Vxr)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzjDeK48H2IsKM8qLbH7VJM4aFVMgw8wKecBORqBuzhhfOKO6-Wu4dtrYPSVGiNreY2FGBfMnzmY-FaqhSedm6j3barIBMc1y-R6oLITuNJ3kVT9Sc0cQdEmIof7_hK3_K1)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz1HcJThXrcXqAP1D5_Yo2MoAuPoxa-Iz9Bm6mqHw5mc90ipVInugjy-4UaHuyBrv0ER6_Cbg3EdtU1-ZOPKps1DOOACvyZxQ2li3FvGOiwsPTvAL6DWFPWq8N--vVMeqI5NsMY)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzjDeK48H2IsKM8qLbH7VJM4aFVMgw8wKecBORqBuzhhfOKO6-Wu4dtrYPSVGiNreY2FGBfMnzmY-FaqhSedm6j3barIBMc1y-R6oLITuNJ3kVT9Sc0cQdEmIof7_hK3_K1)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz1HcJThXrcXqAP1D5_Yo2MoAuPoxa-Iz9Bm6mqHw5mc90ipVInugjy-4UaHuyBrv0ER6_Cbg3EdtU1-ZOPKps1DOOACvyZxQ2li3FvGOiwsPTvAL6DWFPWq8N--vVMeqI5NsMY)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzpT7VUEkbY_LN4aEHvlfVOtsqwRd9R6ozzprltjOVTPrwolQ0c5sQiX-EJqBpY-SVEx_gV069uty-KWd92mDmQ0y42UoGr0l4dxajHcXAZq5w0cNffJZNbeJlPNqnOftXpyvU)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxP9A_VZEVH7HS8jWHxbshE0I_mQhbvd7FpJqyqqRiu75aBQA2PdXPjNuoRLcxwitS7v7SQs30AEtTzPsYVTf7EJEHMCgtc9y6b-rSj7H9qU34mkDJrWtwceDHQCH2Ly8mW8rE)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzpT7VUEkbY_LN4aEHvlfVOtsqwRd9R6ozzprltjOVTPrwolQ0c5sQiX-EJqBpY-SVEx_gV069uty-KWd92mDmQ0y42UoGr0l4dxajHcXAZq5w0cNffJZNbeJlPNqnOftXpyvU)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxP9A_VZEVH7HS8jWHxbshE0I_mQhbvd7FpJqyqqRiu75aBQA2PdXPjNuoRLcxwitS7v7SQs30AEtTzPsYVTf7EJEHMCgtc9y6b-rSj7H9qU34mkDJrWtwceDHQCH2Ly8mW8rE)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwa9vnB9nRN8MDZ69iDQQSgl9mf3QPQWl55QFv0Jg20peU0atv1kb_gtfcu5NqRf4ZrJWKGA0JE9d3WwArwEugLCOBhpIdBFIy1As9PbDVPHa65oF4rFbh8hOCpWAaq06kCvrU)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy0dVmZOBNDZLnQsP17nMFKieYUE8D3czV-RB_C98B9l1s-TWa1X-OcSrYaNvo6PxuELLta2N_R9XGfRCgiPRPPeUiQNVd7jZTBDoGBA4EmFWWGdPJVGrbNAIdoEDObqd7IGgY)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwa9vnB9nRN8MDZ69iDQQSgl9mf3QPQWl55QFv0Jg20peU0atv1kb_gtfcu5NqRf4ZrJWKGA0JE9d3WwArwEugLCOBhpIdBFIy1As9PbDVPHa65oF4rFbh8hOCpWAaq06kCvrU)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dy0dVmZOBNDZLnQsP17nMFKieYUE8D3czV-RB_C98B9l1s-TWa1X-OcSrYaNvo6PxuELLta2N_R9XGfRCgiPRPPeUiQNVd7jZTBDoGBA4EmFWWGdPJVGrbNAIdoEDObqd7IGgY)
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
