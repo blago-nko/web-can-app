@@ -141,21 +141,21 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dw5WITW7HhywYmIf47xYO9Y5KDM0iMCnf-Kd3wy4goXegAJA0lWGAYfVOdKrasH6vHEvlwfdyY5i9ZTuLIS2D3WIazZWIPPQeJ-DApbPWZE2mYCogTfCdhuvvsvVIGyXrlU6Vxr)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxGBOkK7e5OrUuFckHIduZoqTYIqg5wsjMUdvHIwNHvu5pdPx6920tpTTifB_szpoq_nrJ_RttAhsdy10ER97cXWzybWRjH3j4zglls6gkGYPjSfI6Eiy5beGgRPRZJL_PCg2DH&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dw5WITW7HhywYmIf47xYO9Y5KDM0iMCnf-Kd3wy4goXegAJA0lWGAYfVOdKrasH6vHEvlwfdyY5i9ZTuLIS2D3WIazZWIPPQeJ-DApbPWZE2mYCogTfCdhuvvsvVIGyXrlU6Vxr)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxGBOkK7e5OrUuFckHIduZoqTYIqg5wsjMUdvHIwNHvu5pdPx6920tpTTifB_szpoq_nrJ_RttAhsdy10ER97cXWzybWRjH3j4zglls6gkGYPjSfI6Eiy5beGgRPRZJL_PCg2DH&origin=blago-nko.github.io)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz1HcJThXrcXqAP1D5_Yo2MoAuPoxa-Iz9Bm6mqHw5mc90ipVInugjy-4UaHuyBrv0ER6_Cbg3EdtU1-ZOPKps1DOOACvyZxQ2li3FvGOiwsPTvAL6DWFPWq8N--vVMeqI5NsMY)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dypGbBoW6yuXCg0VD8-ljtbKxKEAjL0B52cjEUybB_mTSqs2deLiFsNYYpkl0yN6PoqGjdT0yAFEMn7gUy-2wneMXd_tV3wXEHHx5CCWTsDRxmdaPnWN55NP7d7p7dlVFp6yx03&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz1HcJThXrcXqAP1D5_Yo2MoAuPoxa-Iz9Bm6mqHw5mc90ipVInugjy-4UaHuyBrv0ER6_Cbg3EdtU1-ZOPKps1DOOACvyZxQ2li3FvGOiwsPTvAL6DWFPWq8N--vVMeqI5NsMY)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dypGbBoW6yuXCg0VD8-ljtbKxKEAjL0B52cjEUybB_mTSqs2deLiFsNYYpkl0yN6PoqGjdT0yAFEMn7gUy-2wneMXd_tV3wXEHHx5CCWTsDRxmdaPnWN55NP7d7p7dlVFp6yx03&origin=blago-nko.github.io)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxP9A_VZEVH7HS8jWHxbshE0I_mQhbvd7FpJqyqqRiu75aBQA2PdXPjNuoRLcxwitS7v7SQs30AEtTzPsYVTf7EJEHMCgtc9y6b-rSj7H9qU34mkDJrWtwceDHQCH2Ly8mW8rE)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxLhSVTryDe-nYbdlvRv53GOGUtknT1tO1pGR-asQloQutUllNsLzbZCcWyaO6hdkCrzqxXVOgOt-BVH47tC6rwsQExVh8QvfD8z2F9ZO38QzbGr0DhE-wQMdJrDObmK6oh7iA&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxP9A_VZEVH7HS8jWHxbshE0I_mQhbvd7FpJqyqqRiu75aBQA2PdXPjNuoRLcxwitS7v7SQs30AEtTzPsYVTf7EJEHMCgtc9y6b-rSj7H9qU34mkDJrWtwceDHQCH2Ly8mW8rE)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxLhSVTryDe-nYbdlvRv53GOGUtknT1tO1pGR-asQloQutUllNsLzbZCcWyaO6hdkCrzqxXVOgOt-BVH47tC6rwsQExVh8QvfD8z2F9ZO38QzbGr0DhE-wQMdJrDObmK6oh7iA&origin=blago-nko.github.io)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dy0dVmZOBNDZLnQsP17nMFKieYUE8D3czV-RB_C98B9l1s-TWa1X-OcSrYaNvo6PxuELLta2N_R9XGfRCgiPRPPeUiQNVd7jZTBDoGBA4EmFWWGdPJVGrbNAIdoEDObqd7IGgY)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dzrROLwa7WVZE6pgzJtcM2QQDZFzYfTYNnkRezLIplBG7mo_uS5buXdVXqAVolSxXyMx4RmAAzkQhvhdRTH2An2BVM3DStThpHrmQBc5XTDBsWh-VBFc4htRf_Dh7l_sWEhbGQ1&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dy0dVmZOBNDZLnQsP17nMFKieYUE8D3czV-RB_C98B9l1s-TWa1X-OcSrYaNvo6PxuELLta2N_R9XGfRCgiPRPPeUiQNVd7jZTBDoGBA4EmFWWGdPJVGrbNAIdoEDObqd7IGgY)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dzrROLwa7WVZE6pgzJtcM2QQDZFzYfTYNnkRezLIplBG7mo_uS5buXdVXqAVolSxXyMx4RmAAzkQhvhdRTH2An2BVM3DStThpHrmQBc5XTDBsWh-VBFc4htRf_Dh7l_sWEhbGQ1&origin=blago-nko.github.io)
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
