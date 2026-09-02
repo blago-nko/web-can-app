@@ -7,7 +7,7 @@ date: 2025-04-01T00:00:00Z
 ---
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi6oLb7YwNjttoMv-J3xB9ogTJtx6_r1BU9tQT3MnEqgvylqntUyhDLrADBiXhsOXmVYEBMw_2ovrrbkt9p8yLcV18kWNRtuSlbXe0vOKE2hRBxRB8QHUp46r42DSFluFAihdKJbYGOpEwWQfuRC6GrNAti1tTRaQEdppR42d_PfdwTSyIfzcFKgWRnwnM/s1600/%D0%93%D0%95%D0%9D%D0%95%D0%A0%D0%90%D0%9B%D0%AC%D0%9D%D0%AB%D0%99%20%D0%9F%D0%9B%D0%90%D0%9D%20%D0%93%D0%9E%D0%A0%D0%9E%D0%94%D0%A1%D0%9A%D0%9E%D0%93%D0%9E%20%D0%9E%D0%9A%D0%A0%D0%A3%D0%93%D0%90%20%D0%93%D0%9E%D0%A0%D0%9E%D0%94%20%D0%92%D0%9E%D0%A0%D0%9E%D0%9D%D0%95%D0%96.png" alt="О проекте" title="О проекте"><figcaption>О проекте</figcaption></figure>
 
-Добро пожаловать на платформу **[САН (Сообщество агентов недвижимости)**](https://can.blagorussia.ru/) — специализированный интерактивный ресурс, созданный для эффективного взаимодействия профессионалов рынка и прямых клиентов. 
+Добро пожаловать на платформу [**САН (Сообщество агентов недвижимости)**](https://can.blagorussia.ru/) — специализированный интерактивный ресурс, созданный для эффективного взаимодействия профессионалов рынка и прямых клиентов. 
 
 Наша цель — объединить независимых агентов, риелторские компании и частных брокеров в рамках единой, прозрачной и технологичной экосистемы.
 

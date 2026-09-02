@@ -39,6 +39,6 @@ Telegram-группа: [<img src="https://favicon.yandex.net/favicon/v2/t.me/?si
 
 - Яндекс Бизнес: [san-soobschestvo-agentov.clients.site](http://san-soobschestvo-agentov.clients.site)
 
-- Форма обратной связи: откройте нажав на **[ССЫЛКУ**](https://partnerstvo.blagorussia.ru/2020/03/napisite-nam.html)
+- Форма обратной связи: откройте нажав на [**ССЫЛКУ**](https://partnerstvo.blagorussia.ru/2020/03/napisite-nam.html)
 
 Мы всегда рады услышать от Вас и ответить на интересующие вопросы. Желаем Вам приятного общения и надеемся на долгосрочное сотрудничество!
