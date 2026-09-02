@@ -17,7 +17,7 @@ date: 2025-10-01T00:00:00Z
 
 - **Адрес**: Воронеж, ул. Хользунова, 99б
 
-- **Тип дома:М**ногоэтажный многоквартирный жилой дом, 20 этажей, 476 квартир.
+- **Тип дома:** Многоэтажный многоквартирный жилой дом, 20 этажей, 476 квартир.
 
 - **Площадь квартир:** 17,842.4 м2
 
@@ -29,13 +29,13 @@ date: 2025-10-01T00:00:00Z
 
 - **Общая площадь:** 1503,9 м2.
 
-- **Состояние:Б**ез отделки.
+- **Состояние:** Без отделки.
 
-- **Планировка:С**вободная (возможен демонтаж/монтаж перегородок).
+- **Планировка:** Свободная (возможен демонтаж/монтаж перегородок).
 
 - **Высота потолков:** 2.8 м.
 
-- **Остекление:В**итражное, 15 окон, выходящих во двор. На окнах установлены рольставни.
+- **Остекление:** Витражное, 15 окон, выходящих во двор. На окнах установлены рольставни.
 
 - **Дверные проемы:** 1 вход для разгрузки, 2 металлические двери и 15 стеклянных дверей в проемах витражных окон, все выходят во двор.
 
@@ -43,33 +43,33 @@ date: 2025-10-01T00:00:00Z
 
 - **Кадастровый номер земельного участка:** 36:34:0205001:6
 
-- **Материал стен:Б**етон.
+- **Материал стен:** Бетон.
 
-- **Материал перегородок:К**ирпич (есть возможность перепланировки).
+- **Материал перегородок:** Кирпич (есть возможность перепланировки).
 
-- **Материал перекрытий потолка и пола:Б**етон.
+- **Материал перекрытий потолка и пола:** Бетон.
 
-- **Отделка потолка:П**окраска.
+- **Отделка потолка:** Покраска.
 
-- **Покрытие пола:Б**етон.
+- **Покрытие пола:** Бетон.
 
 #### Инженерные сети:
 
-- **Электричество:М**ощность 15 кВт⋅ч. с возможностью увеличения
+- **Электричество:** Мощность 15 кВт⋅ч. с возможностью увеличения
 
-- **Вода/Канализация:П**одключение горячей и холодной воды и канализации на сололифт.
+- **Вода/Канализация:** Подключение горячей и холодной воды и канализации на сололифт.
 
 - **Отопление**: Есть выходы под отопление.
 
-- **Вентиляция:П**риточно-вытяжная система.
+- **Вентиляция:** Приточно-вытяжная система.
 
-- **Кондиционирование:П**редусмотрены места для установки кондиционеров.
+- **Кондиционирование:** Предусмотрены места для установки кондиционеров.
 
-- **Связь:Е**сть возможность подключения кабельного интернета и стационарного телефона.
+- **Связь:** Есть возможность подключения кабельного интернета и стационарного телефона.
 
 - **Освещение**: Внутреннее и внешнее.
 
-- **Погрузочная зона:И**меется отдельная, специально оборудованная зона для разгрузки товаров.
+- **Погрузочная зона:** Имеется отдельная, специально оборудованная зона для разгрузки товаров.
 
 - **Наружная реклама**: Есть возможность размещения наружной вывески и консоли.
 
@@ -81,21 +81,21 @@ date: 2025-10-01T00:00:00Z
 
 - **Соседство**: Непосредственно рядом с домом проживает более 1500 человек.
 
-- **Транспортная доступность:А**втобусная остановка с тремя маршрутами расположена всего в 300 метрах.
+- **Транспортная доступность:** Автобусная остановка с тремя маршрутами расположена всего в 300 метрах.
 
 - **Парковка**: Парковочные места доступны непосредственно около помещения и с другой стороны здания. Есть удобный автомобильный подъезд для разгрузки и парковки.
 
-- **Зонирование территории:П**реимущественно многоэтажный спальный район и жилой сектор.
+- **Зонирование территории:** Преимущественно многоэтажный спальный район и жилой сектор.
 
 #### **Ближайшие объекты:** 
 
 В пределах нескольких кварталов находятся:
 
-- **Образовательные учреждения:С**портивная школа №26, Детская школа искусств №7, Детский сад №62, Детский сад №135, Средняя школа №87, Гимназия №10.
+- **Образовательные учреждения:** Спортивная школа №26, Детская школа искусств №7, Детский сад №62, Детский сад №135, Средняя школа №87, Гимназия №10.
 
-- **Коммерческие объекты:А**птеки, универсамы, магазины розничной торговли, Сбербанк, АЗС.
+- **Коммерческие объекты:** Аптеки, универсамы, магазины розничной торговли, Сбербанк, АЗС.
 
-- **Инфраструктура для отдыха:Р**азвлекательные заведения, детские площадки, заведения общественного питания.
+- **Инфраструктура для отдыха:** Развлекательные заведения, детские площадки, заведения общественного питания.
 
 - **Прилегающая территория**: Тротуар, замощенный плиткой.
 
@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxtVFL24UxxkrMvYN8YldzhZKdRDdNLgz4uxJoNQGoDY3IOEB0SpQb2xFhDbzh4Ixm1m9YPiwHWWcasRFA1Bxqak1BR9voThEDgYfw313m1DM7piJsVya_akI1b6VOi__NNOWA&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dy-pA3oN0rW0ZmHWlNVC6Omz2axPsizxA30nJ-acJbNXfpw68wmk_aoQySUx3KD9MwHVVM0syJQKnDALIQYSOwPqYeGqml2kxTR-2xVc6z2wlk9BP0nAwiZzAVGgfyPRoRwYJ50&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwbwQju7hONoUuOJuudZsNX3LXoZZgIdz82YrDd9aEJmxH9cRmIEVlB2BleAi1eZf9FGppcdFScQX6d0ArTg7tJAsRgJ9QZEnoMtY5-mUVQAhOWtKMGye_mojYmVd1xLSoX1kQ&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzywiepgg7Tp6titHmustOm9QJKOLrWOo9dysFQgkO-aj9rhBlc3JUBb_eQSehOL-UKAGjaSFeWmMw91dqK-xVy0WJun3snlrERU-q2UX5GND0Jrik0XDvszh55y2mBXTyE7-Q&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxr3KnsCpVl6LgfeDtmS9mDoMBppTjmExS6znYcNjoYMT4B4xsn8OEmtNv_BWw1O6PZMl78O6ew4vhN01bN7tskwfCmJxJB6iGTqF0p_QM7lS1f1_vOV7_PdezVk0FVOSA-vUAR&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyBTzfRUKqN4Vgyyt44GTJDP9e3DXdHBGiJZWIZMrzfPWAEPsImEvoewhS6RUTJ1pKsS-CRgJe5ILm-pn0cGqAJqi5UfY73qNXZ24jgRMDjBOiblF1CKILr7b_JCiKE7HHvwt6O&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxr6YjxqXOg7uq6r1rI9SSUwaEm-Oygi10X_DUk5Emk72AhQrdyQf4LBqnRvZMcwL8g3ZO6okmf08pYh0KApOR4UCjgdvgw8D-liv_h8JUR0VACYap-stV_uknim_UMv1aQPJyH&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwS4xl_3GHEMfpuen3jfQGELiGhhtoHT1JuEDwPrilhkqtbM2guk0zZUySn5kU6Wl5ETflVGHA2k4d1hQEhkCjnYq96grLmin5MP4p5SpTD3seookm4TVroqxPBqYoe9eqOBg&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 

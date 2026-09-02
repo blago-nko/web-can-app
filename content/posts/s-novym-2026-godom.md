@@ -21,7 +21,7 @@ date: 2025-12-01T00:00:00Z
 
 - **Автоматизация и охват**: Мы внедрили**единую базу объектов с системой автоматического размещения на крупных информационных площадках**. Теперь агентам САН не нужно тратить время на ручной перенос данных — ваши объекты транслируются на ведущие ресурсы страны и мира автоматически.
 
-- **Цифровая трансформация:М**ы научились создавать профессиональные посадочные страницы и использовать ИИ для подготовки договоров, делая презентацию объектов в ЖК [«Прометей»](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html), [«Чайка](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html)», [«Аквамарин»](https://can.blagorussia.ru/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html) и других комплексах безупречной.
+- **Цифровая трансформация:** Мы научились создавать профессиональные посадочные страницы и использовать ИИ для подготовки договоров, делая презентацию объектов в ЖК [«Прометей»](https://can.blagorussia.ru/2025/07/dolgosrochnaya-arenda-kommercheskih-pomeshcheniy-v-zhk-biznes-klassa-prometheus-voronezh.html), [«Чайка](https://can.blagorussia.ru/2025/10/kommercheskoe-predlozhenie-arenda-i-prodazha-bolshogo-nezhilogo-pomeshcheniya-v-zhk-chajka.html)», [«Аквамарин»](https://can.blagorussia.ru/2025/11/arenda-i-prodazha-kommercheskogo-pomeshcheniya-11-v-voronezhe-zhk-akvamarin-ul-artamonova-4d.html) и других комплексах безупречной.
 
 - **Стандарты качества**: Был принят [Кодекс этики](https://can.blagorussia.ru/2025/08/kodeks-professionalnoj-ehtiki-uchastnikov-san-soobshchestvo-agentov-nedvizhimosti.html) и внедрена прозрачная [методика распределения комиссии](https://can.blagorussia.ru/2025/10/metodika-tablica-raspredeleniya-komissii-voznagrazhdeniya-mezhdu-agentami-nedvizhimosti-san-pri-sovmestnyh-sdelkah-i-peredache-klientov-obektov.html), что сделало партнерские сделки внутри сообщества нормой, а не исключением.
 
@@ -29,7 +29,7 @@ date: 2025-12-01T00:00:00Z
 
 #### 🌟 Планы на 2026 год:
 
-В наш второй год мы входим с четким пониманием: **сила риелтора — в сообществе.В** 2026 году мы продолжим расширять охват автоматической рекламы, увеличивать количество партнерских сделок и совершенствовать инструменты вашего личного бренда.
+В наш второй год мы входим с четким пониманием: **сила риелтора — в сообществе.** В 2026 году мы продолжим расширять охват автоматической рекламы, увеличивать количество партнерских сделок и совершенствовать инструменты вашего личного бренда.
 
 Желаем вам, чтобы в новом году каждый объект находил своего клиента еще быстрее, а партнерская сеть САН стала для вас источником постоянного и стабильного дохода.
 
