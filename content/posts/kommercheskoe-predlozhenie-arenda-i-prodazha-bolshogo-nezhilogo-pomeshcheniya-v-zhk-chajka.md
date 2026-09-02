@@ -141,21 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwNVkvuFpTLkD8qb4wrxkm-HmyT7RWbtPGqG40-drp6Z_UIEuR_uQ77R-sr_7hgwFoaUELaZ6peMxevi2OZ12O74k-jDbcMkHI1mrB0QpkHgYk481XO_uOLW-jWTmC980SwrA&origin=blago-nko.github.io)
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxtVFL24UxxkrMvYN8YldzhZKdRDdNLgz4uxJoNQGoDY3IOEB0SpQb2xFhDbzh4Ixm1m9YPiwHWWcasRFA1Bxqak1BR9voThEDgYfw313m1DM7piJsVya_akI1b6VOi__NNOWA&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwNVkvuFpTLkD8qb4wrxkm-HmyT7RWbtPGqG40-drp6Z_UIEuR_uQ77R-sr_7hgwFoaUELaZ6peMxevi2OZ12O74k-jDbcMkHI1mrB0QpkHgYk481XO_uOLW-jWTmC980SwrA&origin=blago-nko.github.io)
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwbwQju7hONoUuOJuudZsNX3LXoZZgIdz82YrDd9aEJmxH9cRmIEVlB2BleAi1eZf9FGppcdFScQX6d0ArTg7tJAsRgJ9QZEnoMtY5-mUVQAhOWtKMGye_mojYmVd1xLSoX1kQ&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxFYfQq9rRtRozXpjdcg2rI1kX0TWS0PVx71ttQSOZZBei2rF124ZjQqHhWZGBrOUIekmvsI-l_IdVhdXJx0t9nhASIPAg9mYeBSCS6on1g6lT4_64EMc7MmxjrUu0L27NxJQO6&origin=blago-nko.github.io)
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxr3KnsCpVl6LgfeDtmS9mDoMBppTjmExS6znYcNjoYMT4B4xsn8OEmtNv_BWw1O6PZMl78O6ew4vhN01bN7tskwfCmJxJB6iGTqF0p_QM7lS1f1_vOV7_PdezVk0FVOSA-vUAR&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxFYfQq9rRtRozXpjdcg2rI1kX0TWS0PVx71ttQSOZZBei2rF124ZjQqHhWZGBrOUIekmvsI-l_IdVhdXJx0t9nhASIPAg9mYeBSCS6on1g6lT4_64EMc7MmxjrUu0L27NxJQO6&origin=blago-nko.github.io)
-
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dztVDq7GvfM7narZNfQV_BfBC4zhEoBe-kqYcHxPq-V_3fx2pRLGklxVGEXJKb7kNQdvF2q0AZLsnFXJw0I4b9I5Kv-YTJUaO1tIxlpTOZfeFExBrKM2EJbAJPqoKmwQWtrN0o&origin=blago-nko.github.io)
-
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dztVDq7GvfM7narZNfQV_BfBC4zhEoBe-kqYcHxPq-V_3fx2pRLGklxVGEXJKb7kNQdvF2q0AZLsnFXJw0I4b9I5Kv-YTJUaO1tIxlpTOZfeFExBrKM2EJbAJPqoKmwQWtrN0o&origin=blago-nko.github.io)
-
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwd0ozl6EMUi0iNJPmLRp_hfuSy_rBqqbjGIn9uwK79nLtNqw9n1h0u5d_Ai19fjowHFRMND6PhPdKXLUDXurwlTGsENVeHDUGvxeZv33CCO3YUij-b0B3pqxfuF-xdyDhk1A&origin=blago-nko.github.io)
-
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwd0ozl6EMUi0iNJPmLRp_hfuSy_rBqqbjGIn9uwK79nLtNqw9n1h0u5d_Ai19fjowHFRMND6PhPdKXLUDXurwlTGsENVeHDUGvxeZv33CCO3YUij-b0B3pqxfuF-xdyDhk1A&origin=blago-nko.github.io)
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxr6YjxqXOg7uq6r1rI9SSUwaEm-Oygi10X_DUk5Emk72AhQrdyQf4LBqnRvZMcwL8g3ZO6okmf08pYh0KApOR4UCjgdvgw8D-liv_h8JUR0VACYap-stV_uknim_UMv1aQPJyH&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
