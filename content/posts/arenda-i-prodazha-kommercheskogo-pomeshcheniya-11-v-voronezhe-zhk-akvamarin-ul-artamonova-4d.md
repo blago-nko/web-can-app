@@ -171,21 +171,21 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwZdBRO6qszfCEuGsiPyfPicGRB3b4cuPGSUcAe6wL9HxJZHX8UnzFpmaVbA0bOLP1VHdQc59b8sT3jruu9vjWP-PL3aLl8ySJi4y-qtWa46EUbPB7HXB_LLsxxm0i-KFLbWJ3K&origin=blago-nko.github.io)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz0fZQBTwj1Xom11p5LvcHCmWDnDp9txOsVp-cia-tc9k2uR8QMuoaRN4TO5mYCLCF2tKU-E-F6AQcLeOhQI8cbhZn0IE0ZkLxQHK0vO9pPAvhi-zif65ciZqnyQMhWnDqS7nQK&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwZdBRO6qszfCEuGsiPyfPicGRB3b4cuPGSUcAe6wL9HxJZHX8UnzFpmaVbA0bOLP1VHdQc59b8sT3jruu9vjWP-PL3aLl8ySJi4y-qtWa46EUbPB7HXB_LLsxxm0i-KFLbWJ3K&origin=blago-nko.github.io)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz0fZQBTwj1Xom11p5LvcHCmWDnDp9txOsVp-cia-tc9k2uR8QMuoaRN4TO5mYCLCF2tKU-E-F6AQcLeOhQI8cbhZn0IE0ZkLxQHK0vO9pPAvhi-zif65ciZqnyQMhWnDqS7nQK&origin=blago-nko.github.io)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwGWQ7bYV7d9ghHPiaTLe2XeTZEdEVe8YaCJRK9YFaRIpOh3h5x8eN_KVcCWFlhnPO5o1v3PG72ldiKs49gTmnB4IFU2LOSs0hU0gI2L26lneL1ktZmnKSEDl633BdBr79ZsQ&origin=blago-nko.github.io)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwCf5sMb9_CGfe7Do29B3WGodRqDVeY_gpwUwhfzSYHuW59Sc-jVQL0eY48M7dAyRS2hRkrlvyHsJ1Z9KpMoMqEHTAedfxDNZyGxYfcM5C3t0YdhJqSbjU8QsV8fGrdFASivU1F&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwGWQ7bYV7d9ghHPiaTLe2XeTZEdEVe8YaCJRK9YFaRIpOh3h5x8eN_KVcCWFlhnPO5o1v3PG72ldiKs49gTmnB4IFU2LOSs0hU0gI2L26lneL1ktZmnKSEDl633BdBr79ZsQ&origin=blago-nko.github.io)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwCf5sMb9_CGfe7Do29B3WGodRqDVeY_gpwUwhfzSYHuW59Sc-jVQL0eY48M7dAyRS2hRkrlvyHsJ1Z9KpMoMqEHTAedfxDNZyGxYfcM5C3t0YdhJqSbjU8QsV8fGrdFASivU1F&origin=blago-nko.github.io)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dykId5m6FR2VNK-KYe09M05D2OECA29GDEzXbjEOz67MLxXs348qNzLOdLhCQEvS7D-UK7WfMvNn87615eqaqA0Q2EAUUIXsJGDq5sjYhH9Cm7MPydS9Xxw4-ZRT8fxUBF2huY&origin=blago-nko.github.io)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dxucioE-UZgwVrjKMHa4VsAWhih5GZBt9S-YIwAWkjdq8KW_8ttvcDJPC-PJCmexUpzWVv7DK2TvlqBjczOdF7Tt_uXTkp7w0UmV05eZBOx7QdytRdSCFxLHGwjJRYnxdE3ezMo&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dykId5m6FR2VNK-KYe09M05D2OECA29GDEzXbjEOz67MLxXs348qNzLOdLhCQEvS7D-UK7WfMvNn87615eqaqA0Q2EAUUIXsJGDq5sjYhH9Cm7MPydS9Xxw4-ZRT8fxUBF2huY&origin=blago-nko.github.io)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dxucioE-UZgwVrjKMHa4VsAWhih5GZBt9S-YIwAWkjdq8KW_8ttvcDJPC-PJCmexUpzWVv7DK2TvlqBjczOdF7Tt_uXTkp7w0UmV05eZBOx7QdytRdSCFxLHGwjJRYnxdE3ezMo&origin=blago-nko.github.io)
 
-[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dz76X0aWP3jiCTeRdwP2v-x4R95nOV3SNoACbqv7clGNEVtuCykXMnTxmzu0PRkA6bb76HLbmVgXM-47ZLfQHTkcLgBr1XMAXcI9GpK6jotXN2hrbQk5ITGcq3GBgI0iKzoX68&origin=blago-nko.github.io)
+[▶ Смотреть видео](https://www.blogger.com/video.g?token=AD6v5dwdrgQoBrbDtwxYKVbGEWioXmJMrllkppRQLRdtK9j47Lsv994FQ6FkpM4SwVdfmYBUVKuU2DzwW2NKsZlVftNlhS3vem0zoUE6-gyJxOigooxNBNftRADVHlsVvb5gGmtfpAl5&origin=blago-nko.github.io)
 
-[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dz76X0aWP3jiCTeRdwP2v-x4R95nOV3SNoACbqv7clGNEVtuCykXMnTxmzu0PRkA6bb76HLbmVgXM-47ZLfQHTkcLgBr1XMAXcI9GpK6jotXN2hrbQk5ITGcq3GBgI0iKzoX68&origin=blago-nko.github.io)
+[▶ Если видео не открывается — смотреть на Blogger](https://www.blogger.com/video.g?token=AD6v5dwdrgQoBrbDtwxYKVbGEWioXmJMrllkppRQLRdtK9j47Lsv994FQ6FkpM4SwVdfmYBUVKuU2DzwW2NKsZlVftNlhS3vem0zoUE6-gyJxOigooxNBNftRADVHlsVvb5gGmtfpAl5&origin=blago-nko.github.io)
 
 ### Контакты для связи:
 
