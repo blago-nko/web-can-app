@@ -99,4 +99,4 @@ date: 2025-08-01T00:00:00Z
 
 **[Регистрируйтесь](https://can.blagorussia.ru/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html) прямо сейчас** и станьте профессионалом в создании эффективных посадочных страниц!
 
-Готовы начать? Переходите по **[ссылке**](https://can.blagorussia.ru/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html) и начинайте обучение уже сегодня!
+Готовы начать? Переходите по [**ссылке**](https://can.blagorussia.ru/2025/04/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti.html) и начинайте обучение уже сегодня!

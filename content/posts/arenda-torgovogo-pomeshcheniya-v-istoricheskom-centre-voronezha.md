@@ -7,7 +7,7 @@ date: 2025-10-01T00:00:00Z
 ---
 ### **Не сдается, уже найден арендатор**
 
-Посмотреть другие коммерческие объекты Вы можете по этой **[ССЫЛКЕ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
+Посмотреть другие коммерческие объекты Вы можете по этой [**ССЫЛКЕ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
 
 **Расположение**: Исторический центр города, первая линия
 
