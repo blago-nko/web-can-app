@@ -5,7 +5,7 @@ aliases:
 url: "/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich/"
 date: 2025-05-01T00:00:00Z
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigosydJKOsCNWlxnUqh4l5nnaDaKsH5ICd074Z3TyHXOo8gsY2cQUE3ROj8i6bf2kZTy5QPr2MAbB1ucNHvqvxOD_yORoaviL-sNun99nu4EFbtxSmPho80MXfBuVJxbQO3cmxYhiatNPE5eIM1do5pvyIymkQesS8O-cJZm-owH1FupJso6KoWTC7PNc/s1600/image-2019-12-15%2012_13_49.jpg" alt="Бобров Александр Валентинович - независимый агент по недвижимости." title="Бобров Александр Валентинович - независимый агент по недвижимости."><figcaption>Бобров Александр Валентинович - независимый агент по недвижимости.</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEigosydJKOsCNWlxnUqh4l5nnaDaKsH5ICd074Z3TyHXOo8gsY2cQUE3ROj8i6bf2kZTy5QPr2MAbB1ucNHvqvxOD_yORoaviL-sNun99nu4EFbtxSmPho80MXfBuVJxbQO3cmxYhiatNPE5eIM1do5pvyIymkQesS8O-cJZm-owH1FupJso6KoWTC7PNc/s1600/image-2019-12-15%2012_13_49.jpg" alt="Бобров Александр Валентинович - независимый агент по недвижимости." title="Бобров Александр Валентинович - независимый агент по недвижимости."><figcaption>Бобров Александр Валентинович - независимый агент по недвижимости.</figcaption></figure>
 
 #### Контакты для связи:
 

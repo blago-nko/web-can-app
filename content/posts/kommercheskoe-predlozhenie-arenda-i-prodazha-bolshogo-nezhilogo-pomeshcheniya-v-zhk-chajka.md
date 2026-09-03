@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxLztiu2EdkzQZJAqkgt10RlfI9lQJ0ZiLXLbejuRG7YPF8V2P6_SL8P2fj4GtlEEn1FO4PKULo7YN9jSZikTl4-2MBAXOo79HVRt48dxWpE7w51P6pOikEBZKULDv9J8B2d3tZ&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxqsh0iN-kPlcQuKYKTByJomXRzpb1h6orf-x__du-qqv0vEEByND1x40CCiCmMZ4etz5_57rPHrbl0igWMtD76j9T9dIDk1P5nF81-6mu18nVsJBi6i9gliCveaglOCYxMzgY&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwJVZfTSiuVhmBoUjkiRuvlkr9-SNxv_c7DlabWdUnJCEOP-LPYAl3uvGfIv22JIZHOcrUcvuRb8g8HiwBx9q-R6rF0Xs_WgPFnSY-Mf85SS__lBnU1GrnjnNdBq1EMujh-tRpS&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwLRpiiwXLU7mL4E0MuPr9tl6XND4vZA76nzLOyngwKSLF2PoDzUwBcfvzlGZC0kdYV_t3ly6whLemvD0Yyzg12ts97xVkLf3iXwaNeepfR4E8bCNWU0T8j0ShtQj1Oc7gQm7k&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dx6fhgdgySYuHp2ZXiSnuQMYgm2zP7C3kwDKCwtkuUlx-7_GyXGfkhvtDjsR-CT4ZWSnt5pPEBEoGU5dPqjBa4Vp_m1E5TOZvIqy3xelCAJfbiNXOCgbFHbKV0Slqd6cmP8Gu4&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwO5pqMjXcq0l-CD-LgwvTrH5c5UdFdPy1aKdpzlXzzGaR_XPi-G8WuQpdjAGcNCBKcBMRbT5VxeJEGrcRlMLaD4_JSUYDL2cN3RoxaJFdsK7B6wYJlA1bUxzHQJ4M2NEntE5Dx&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxN5zoCis4VmSEdfqk0jJXkrmvDwoPCrkb8ajJ6wG1ItA2Spzoa-bZUgWbc6PKiyotNR41OKs-Bk0s43TZzLtkg6T5o-88K3Vu-1HClk4Xbeg7QtCafYSXSTbsczDoIKltNpTY&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzrNsnUZkiCWw1yEpGjFyV-ILQcTWJCi2afv8GMFZ1SjHcA8sKVTcK4LAsiJyl2Sy3IWRhQ6prLvdJA6Egc0YLrf18AX8wTKr6u8UzNx30vPxdAqA-uZwCajyNEx0bwhqhEhP4&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
@@ -245,4 +245,4 @@ date: 2025-10-01T00:00:00Z
 
 - Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
 
-- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения можно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html) Посмотреть на другие предложения можно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
