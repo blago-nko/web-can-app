@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyjjyHaZRwFETYQA76hE-ttmRkzNQ-LHWyHdK9SqMaAm-Jjz5pMcpMJQhs0TPwWibnBU8rGVidVRIbkFSpNW9TVIqS8XfVlY0AO2w7rMo1uQibUG3Ka6ZPU1kh6-K5SWg7r8H0&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyv_qJeBex6PElhnKf3b0ghQz5u6oL69P2_AOuHtAbKQYlfxehL8fAuy3gX50uu7Xf3CVueaX539O4bl1J0zSrfC-cLp1vOAVi5b6kTkZqxsCw_BRfH858wbh9MH4exvyQVwa4r&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwZkYJaYPXXZqnyledONpY4tMK1i22iKw8uSwaMErmUFc054laW-CxKy6qY9f8pAH7p8r90ugPoopqmDn3nk4xonlkIHoBSFC3YAR0pcah7eh6MhmceMzIcsEx0sCXFMtVQU40&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dw700O9LmR377gB6ikH_Mvj_HrxBFRJn3PKH8yZUvjhIpW53u1uKXuKgnCpYv5QJaTAprnpdjsKMDg03y-lqQdIkVpMLS8jUv-H2Yf4lqMB2_F45eFzK-eFjJvSAZgI1hBJAow&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwPjbQc3G37IjgSik-1YaBLevzS2TNa2H5rPpd-qaKUXJ8QAbRdjhG4mq8JEAj7xjDxNI0G28W10JNfwBT1Cf51CKaEQsshAC8Ks0GG4xNoDR0wAZrfY-wVX1gAWMmWWaCJaXw&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dydhieF8QoIt8LfZN53jpGSmBliSsY11SA8rxKD6_IRSMeabQ6YrCT0c-93440P2OIe96ePLT8gi1pUMFFWJY0vHsQrIEN5QoY7Evi_RMJ1RjYHQRSsDqEWrjelu8J3P7JSNCdn&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxnqXpTTpAL3eFu8wRhqzFxGa71Xf6TtiX_xtzUJDmlU9zO46BVPZiDpNM02N7MtyUc7Jb8DhF0LK2jYASoPBvareXcy4YEaqxcDUNLx4XXqRYzWPi7Am7lZfhtl8Onj2wxE0Ye&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxhZThPq30GwiRUr16x6yudn__VFHxY8y0dNgYC2D17mxIR_4kF34Od5flQx8UYbCwSppbkteHSex8O5o4ZmMzZNDYy-1IDRFqLSUvGxdtvYjC5LtrZz3UWU8X821_VCGTtWJw&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
