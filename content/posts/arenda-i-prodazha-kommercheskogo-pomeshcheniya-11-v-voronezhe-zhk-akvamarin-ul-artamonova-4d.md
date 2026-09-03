@@ -171,13 +171,13 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzFjyGfOb6KjKxOsQ_jbh1l66CRK2l20JwNzRwocnNd3D4WhUpLSEsoPx7Vaa4PhtnsMOObF1g5YVFON4d8iUF7iK4OAyGCcx4Bcn6dwqKB4qWspsqeltKiNewwA-MN45iS5x0&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxeFsAuhMd384bIjFzekXuIcXxDMe8OAaJksxczh60iOxyvbm6RDsvb9vQEk7JLGrC3R8TnsJycAcPNYIqy3JvnJnaf3p3fNIYpRYrYxn9THUcqxVMCePIEmryv6k_GR7Rxmw&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwcKfqGnHLTFJd0gC9l08iXwo2501KgVDeNhcBREtecwf91wOGbaAd66H0gRlUNRB0HNfd3VJWZMeemIl7iUx_bbDBpWOdu5hhLjo-OmhNpViG3-j0hMOW7xvqNHvpWyoH3LmtO&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzLw6O9uaH_xGwUAngxej1hrs0vVw-TRzzUO1_taoEzLSADOTSF95NI14tcDF2cclEv1idnWKmZ5vwYKenXU0hJf_ogRaxojWS8fEub0v8wnivbgQp8D1B-klsl8EmwED8cPceD&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dy3SEgy4s_u4h3XW-_ioz1Po9rRTtiu8775xu57kB_VM3oAlALiYZ-wICy8jZhiCfBi_33aeE8NifnOJZYC1nSrLlil2ZbdD4BBzb_yVAEvvcIErEOhq2G18GVtraQuVj3DTrTw&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwvoZMW7k8ViiDfk6V9GnZez3oHAp_MaztV32JgxYPIAwKsgMo5qLr4skfkgrhoRRKz5fQ2qrw4GbnLCv9yhYUiVaJ7zXfjPU32K1L0RA5_FGmFIQJct2xXw35nAwbvvfRFqS4U&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwcqVkp3p5QmNKAZI3G3g74LjWGH0hEyWYyCbwT4ayrreI-BRg-9WUVWsEk9Ooa131M_RwAnTXUj703h6uu1G38UDtb6HZvwMekKqmrWtyy2lO13USBZGk1R0ScU_H7sJc5XPE&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyixI2rme3JT_5JDZpcuRoogrtRAI0umBFeiMC8zgLriCI93xRH2TTFsxlM0Fe0TI_z_6YZ8p94ULd1i6cUlw87HY1nZN-zRbEpuNuQPPBPl8NqXER5pL09zYCyXAO21b3Gq_o5&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 ### Контакты для связи:
 
@@ -185,4 +185,4 @@ date: 2025-11-01T00:00:00Z
 
 - Email: bobr-al@yandex.ru
 
-- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html)Посмотреть на другие предложения модно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
+- [Бобров Александр Валентинович](https://can.blagorussia.ru/2025/05/agent-po-nedvizhimosti-bobrov-aleksandr-valentinovich.html) Посмотреть на другие предложения модно [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/10/kommercheskie-obekty-nedvizhimosti-na-prodazhu-i-v-arendu-ot-rieltora-bobrova-aleksandra-valentinovicha.html)
