@@ -131,7 +131,7 @@ date: 2025-10-01T00:00:00Z
 
 #### Контакты для связи:
 
-- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), Telegram, [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
 
 - Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
 
@@ -141,13 +141,13 @@ date: 2025-10-01T00:00:00Z
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRkQAFLEsUndbB5VZsk2U4ZHxOd5JiZc4Efn1cxpAAgiP3BcqIGVuwwx2J1PQX5g-SOXbU-T2J9eNrubjPwNRF5UiIs_pEBZIi4eshcZATTO-AIeoebNmOsjEgRt8Y8hQznuDU_nep20hvsl_ONv8LGw6U-YOLO1KS3uhJZ6gKCHsY0jr2gZMjzDLLMbI/s1600/4c5e71d1-cfe3-49f4-a1da-335881600ccd.jpeg" alt="План помещения" title="План помещения"><figcaption>План помещения</figcaption></figure>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzFdRZ8_MuPF9D1YFI2lBHJLzWj1zlYenvMH82wPVnJH-9L4cKy3hB0S99lGn9V4hly74IK8Cq5lXu3GDrO8Qs4wjw0opy3JZMIZeJjieGT1FwU950C6l_aLWDIF8M0wk1X8Q&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyZ0G6mJei_Hbt4-DGe5-mRC88kfb7dQWuZk5deY8BrNNJqXg8UDeg5w-8uQe7Y8aTCXtIczZ9enhaGrjpqqm-v9_kn-wfGQh2mAWL-5v0Q_h4KFbfSoAF9lm4FxdocVDaAmS8&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxMrWk9oaxdsVlz1d1n-f6YJdboipv3MOtKDsNppXiwSlnnMAzdhMrEcozMVIdmStmex4je4Ll0_LGmXcvslzVVIRMWDIOatLQcj9aM5D5Pn36EExkTjzA7wK5EpCSKZ4ADo4QQ&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyKF9ExyWK_KHz1e3W50r9MM5SA5Bif9uviFo-wUWUPzqfX-e-FnJXouTi7a8ZdUN-YDeA2l2UucsUUhAUiQMCPj3fK_q5KTxkZV_MaJFf4zShJ2YlgqSXtwj-HU9E3KuDPhHJK&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxi7xCffqVG6MeyXSxmVZd0dJOPhKoKqS8D85N3TrDTLspx-GWlQHxhvZpOngy1CHaTxCqpfPNE2JvsH42PEMA2x6gQqmGmG7Znjoy3EAYVBnT-iAe_GqBpDg-kKEINgn2Y2Qiu&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzTQX7F8yTagG3AepH1yj2i3gss5DoA6Jnu7nmFGF35o8AqliBBytheALY3qlXzaTYs6kmzhhESvuKKOQS-55W5S978i3tV7d0OJVURQvPZcF3yGakWSmXJQD-NeWu1ehKOqj_N&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyuyut8y5ARMUvD0fagQqr1-qmUT4-2lQxOyn40hUsQ4LpL4a0twrOV_MolUsWVEVefkGqGDMSY5VQ_guCAUpMjfKeZ-tEhiPHMAIoHgSupYPWohTffm_C2xHCPH5VFYfOjXZs&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dyyrD2SRF01hUcOvl0op3yJPBYXye9c5EerVRHwEohPsGr0QDOTLcK8e0DvMx30_xUi1qhrcCDCjE5Mrg-vFYhC_zQ1PbpEhWszE_z3cjGPzne-cFgKeAm0pxFodiTxaFd7EA&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 <figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUdXLIuSg20pnLisAx7HeUmFuCMuRy9Nb1XsIBpqSIfk8P4_RgPKFntpxK67yL9IotxPqwXAa_yVCTjfnKszDXKeU5N-HQavufVIMjH3Y-ffHSz9v9BDgMYXKNLGJa-hyspZfn-rn2qdtPpkcSEmbMtQbVWeRb6Bqd23guxWVSu8kSj1o0TBX3gf9OUX0/s1600/65c88e24-8555-4b53-b969-4a82ac588a60.jpeg" alt="Вид на помещение ЖК «Чайка»" title="Вид на помещение ЖК «Чайка»"><figcaption>Вид на помещение ЖК «Чайка»</figcaption></figure>
 
@@ -241,7 +241,7 @@ date: 2025-10-01T00:00:00Z
 
 #### Контакты для связи:
 
-- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), Telegram, [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
 
 - Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
 
