@@ -101,7 +101,7 @@ date: 2025-11-01T00:00:00Z
 
 ### Контакты для связи:
 
-- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), Telegram, [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
 
 - Email: bobr-al@yandex.ru
 
@@ -171,17 +171,17 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxMDaembD907xqwfp0VXjVLYyZFlVLDCWZGrhH7tX3GccQLzdWnbFaTtMSGq-QIjOw6ZhNmRXo6Z2U6DCciLi4sskao8ivgZXfCSYQxVYZ48nlf-A1-ok_rYXUMdWPGX6D11Qep&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dx_dhynetVTc_Mb_LM56MyTpFIrpEJ05gFxZTy6KyKqCXBITq_FwYyhGzipnLqcHoVMZ5JGrMkAYO394jYsl3zZ8J462v4xD_qMtbGKOaExtbZ-iWcSW-WN_LCmBnwt-jWTmyY&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwwuWMrpqz069p1fhdi5vQLjmGQxB8ijcOOTP_Va97V9AbqG9mrLrlbH0vJ7HUDFzcSMkUQwGYkLPSB2bBoBNZaPvQ6pl34GfGdtoSHjokoocCROxFQq3AYtcNIQcmIeQprRg&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzV3Fkx0QBLLgVMekGUhHk2CFNKqr_HFHTfoChU4G4A2zcuvDUE0f8KgH7Aam3AkSnvS25FTSGCZ1AweoW58sldE8NbjvzdvH8n2Dd5UFHiQxN6_sC_mWSKqCrDXak0iS2vRFk&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dzhFWQtU_OIh_UzQM6mc29j2JMW1SHjN5Pp97xW4qvd-821JHg8ny3mEwehc5zJKXp_AneWTWV41U4nePap4Uhp3t0UlAai8emvZsSSsnMrxMZS-_ZNpUgJ0_PBIBQ74hcXdas&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwsSQL1-BfdQRubEjpb6nvnN09VBLWu6kIJ4atxWSt99HU9qBxnc-EPpQTnWFh_rYznvU9Kmpcl6GIk6CpXrSIGoyBT-0hr09JyFswXTtor6OuyVY9V0DTtgp7HmnOVgGsJVb-H&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwUkrC8Pc-2D8EkUvj_Rlb5or-vECTVyOnh4Bv2-sr9zEQkTXTW48p8kWLmjv3pSLui9giElokjJu8J8E_dOJ1B7zD5mKMtqufL7s9DX8Zo4X4WwAr-4Irrr7cX8iaYyXPyJDsk&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dz8LkXKHLHKto_xCQVXS5PKMpQZbRbtmD8tNppb-vlCOVuwb1RHocLf2cQejtrt1YJXMRBntkgifcrI0ORPUd5JGXQKuRtppzf4G9QM2O00W587EcG4IBC8tqWhP4YgfqWXNnyj&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 ### Контакты для связи:
 
-- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), Telegram, [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
 
 - Email: bobr-al@yandex.ru
 

@@ -109,7 +109,7 @@ date: 2025-10-01T00:00:00Z
 
 #### 
 
-- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), Telegram, [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
 
 - Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
 
@@ -139,7 +139,7 @@ date: 2025-10-01T00:00:00Z
 
 #### Контакты для связи:
 
-- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), Telegram, [ВКонтакте](https://vk.com/np_obv)
+- Телефон: +7 920-469-69-50, [Whatsapp](https://api.whatsapp.com/send?%20phone=9204696950), [Telegram](https://web.telegram.org/k/#@Bobr_alv), [ВКонтакте](https://vk.com/np_obv)
 
 - Email: [bobr-al@yandex.ru](mailto:bobr-al@yandex.ru)
 

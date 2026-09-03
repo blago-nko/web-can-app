@@ -5,7 +5,7 @@ aliases:
 url: "/zayavlenie-agenta-po-nedvizhimosti-ob-uchastii-v-san-soobshchestve-agentov-nedvizhimosti/"
 date: 2025-04-01T00:00:00Z
 ---
-<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUFoKZmbkiHdjZTxsTrkPwW9c3qwZ1gWF2J6vbcEv9ESHBIz9yecWtRkqp4oU_ZBxWm8pLQOdR_XHAe0gIrGchmbYs5aUU1-lv8x_iEvOmYigLiso3Vi6zr4ADXfm_aRupOhIKHGiemU41e2X953AfxlTKNJjujlXn1V9G53lFCvEoDa1qCYG9XkEdbWI/s1600/%D0%A1%D0%90%D0%9D.jpeg" alt="САН - сообщество агентов недвижимости" title="САН - сообщество агентов недвижимости"><figcaption>САН - сообщество агентов недвижимости</figcaption></figure>
+<figure><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUFoKZmbkiHdjZTxsTrkPwW9c3qwZ1gWF2J6vbcEv9ESHBIz9yecWtRkqp4oU_ZBxWm8pLQOdR_XHAe0gIrGchmbYs5aUU1-lv8x_iEvOmYigLiso3Vi6zr4ADXfm_aRupOhIKHGiemU41e2X953AfxlTKNJjujlXn1V9G53lFCvEoDa1qCYG9XkEdbWI/s1600/%D0%A1%D0%90%D0%9D.jpeg" alt="САН - сообщество агентов недвижимости" title="САН - сообщество агентов недвижимости"><figcaption>[САН - сообщество агентов недвижимости](https://can.blagorussia.ru/)</figcaption></figure>
 
 Чтобы стать участником проекта «САН» агенту по недвижимости, необходимо заполнить заявление на этой странице. Обязательным условием является наличие аккаунта Google, который есть у всех пользователей смартфонов на Android.
 
