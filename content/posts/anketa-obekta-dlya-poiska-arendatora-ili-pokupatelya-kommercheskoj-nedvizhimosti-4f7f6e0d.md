@@ -78,4 +78,5 @@ date: 2025-05-01T00:00:00Z
 Доверьте реализацию Вашего объекта профессионалу - вместе мы достигнем максимального результата!
 
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLSdbfnr_KXdnb82MtcCiD8zdFjS8pvnWA8pQlDWgXg17UPLcWw/viewform?embedded=true" width="640" height="480" style="border:0"></iframe>
+
 Посмотреть актуальные заявки от покупателей и арендаторов с предложениями по долгосрочной коммерческой аренде, покупке нежилых помещений и земельных участков, с которыми я в настоящее время работаю, Вы можете [**ЗДЕСЬ**](https://can.blagorussia.ru/2025/05/predlozheniya-po-dolgosrochnoj-kommercheskoj-arende-pokupke-nezhilyh-pomeshchenij-i-zemelnyh-uchastkov-v-voronezhskoj-oblasti-ot-agenta-po-nedvizhimosti-bobrova-aleksandra-valentinovicha.html)
