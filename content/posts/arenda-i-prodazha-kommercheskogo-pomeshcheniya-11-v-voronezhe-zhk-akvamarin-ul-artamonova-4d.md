@@ -171,13 +171,13 @@ date: 2025-11-01T00:00:00Z
 
 ### Видео
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyCydukyeHU6s3ZgU8piS1mTHy5-7mReGZVxHHiUPDjOFlN9QSvQkgs-WRelnWVKosjTsm6Lbo0aXwYwTHTUhDFyUW-fOccLzOjgw1t_jdMqhFTF3PwPnrKdlQZCam_yo-t2Os&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxlF6A7LIEIn40LrJQkFfmLYc3OSAVv7F_dZu4U0BGChnFj5KN1QXfOfwTVc9e5Qyu-VlkqEskkLFBip_t8y-rAeAHp2NfRCdK2we2qMdFg2piMUidbtnP-Bc6hoTiErxqp_Vg&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dyz9VB9QZY--BZ-jsOsvHbfp0z6bz1Egj4oePY5A2cPtTQ4IpPq0-8PKgwJEe9Ltb-r54suCaK782_ZGc5UGOQz-j6dZ7frs67XUozrmaDf4XGyGTjLnuES0XhXxhDIQk5KRF59&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dwnoTxJ-GSo7ZVX0u2gYIGVj8J0c3eKdey82XIVKVP1hSYU6B4_XC_7HotCO-Lwltjt1ikjqg8h9XnRSTQVlyd0UNzslVg8UwYL8GVVo9PscV5s8-JhOqDP6Ccrq9-R3khP1Cq5&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dxbc5FmqA-O8mj4LV7hptt4U0p8Au3RtzPJ3f1ex_uXUxtDH_P2KFewED774FyCc4o527fzyvoL_M6Y7GDP1I1CS1E0J2mxqyklePquFGRwumzcCH90-IU4LRkrBhI2KUMdieU&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dxd6GEtyMCuUXVxguXpjOJTHifaw3wMC4NfG2_IyZkJAkFs20b25dBZDvduweTw4lvJTDRI6Tv7wsY8pOVjWsRKOoy_rbV9cia4V_M58SLLPRpeeRJedaLJdBblw9w-jZTsG4Y&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
-<iframe src="https://www.blogger.com/video.g?token=AD6v5dwWDEbnfz762_t1lyNHOUKGnlw3NZ2FdvzXMr56snQTnrWG0olRPhOYqhKj5-qWfxg53A-RfhSsY63J7uQ7JfDYz-R82aQhJ51dB7JILLPtD-4rK_iQ-3We2t5IPPlswXar7-s&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
+<iframe src="https://www.blogger.com/video.g?token=AD6v5dzDByF4CQyFNv_PouVxvrIsIq6I2gaW_4SrZueeTiuJNiyLKC5dMvLS10ZeH1u0KgLmvPQ_TaFrZXZKOxLriiPYCYuahOHGfcwzl0Br0d-tLQPXTL_2yPqUcEOfxpupDU6_pJE&origin=blago-nko.github.io" width="640" height="360" style="border:0" allowfullscreen></iframe>
 
 ### Контакты для связи:
 
